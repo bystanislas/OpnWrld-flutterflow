@@ -1,0 +1,99 @@
+{
+  "project_info": {
+    "project_number": "1024325075073",
+    "firebase_url": "https://openworld-android-ce32f-default-rtdb.europe-west1.firebasedatabase.app",
+    "project_id": "openworld-android-ce32f",
+    "storage_bucket": "openworld-android-ce32f.appspot.com"
+  },
+  "client": [
+    {
+      "client_info": {
+        "mobilesdk_app_id": "1:1024325075073:android:f8ebd247e3664dabf24d80",
+        "android_client_info": {
+          "package_name": "com.flutterflow.opnwrld"
+        }
+      },
+      "oauth_client": [
+        {
+          "client_id": "1024325075073-dp26up18v9e59i2bm0iir0p9kase25ha.apps.googleusercontent.com",
+          "client_type": 1,
+          "android_info": {
+            "package_name": "com.flutterflow.opnwrld",
+            "certificate_hash": "9bbb3186b2189ef16d8f272bdab59362c395cbb4"
+          }
+        },
+        {
+          "client_id": "1024325075073-07g9uc95ccp060qc11qqr1req6qshmnp.apps.googleusercontent.com",
+          "client_type": 3
+        }
+      ],
+      "api_key": [
+        {
+          "current_key": "AIzaSyAP6_PReycdmxydNnmdi-sSG5tS_op13Jc"
+        }
+      ],
+      "services": {
+        "appinvite_service": {
+          "other_platform_oauth_client": [
+            {
+              "client_id": "1024325075073-07g9uc95ccp060qc11qqr1req6qshmnp.apps.googleusercontent.com",
+              "client_type": 3
+            },
+            {
+              "client_id": "1024325075073-7klog3a10mrh1cauvk7ibpf0ou3s29u4.apps.googleusercontent.com",
+              "client_type": 2,
+              "ios_info": {
+                "bundle_id": "com.flutterflow.opnwrld"
+              }
+            }
+          ]
+        }
+      }
+    },
+    {
+      "client_info": {
+        "mobilesdk_app_id": "1:1024325075073:android:4a97fecc713f1c71f24d80",
+        "android_client_info": {
+          "package_name": "org.opnwrld.chatapp"
+        }
+      },
+      "oauth_client": [
+        {
+          "client_id": "1024325075073-m9if23k38e2as54j79o3auedv6isv8pm.apps.googleusercontent.com",
+          "client_type": 1,
+          "android_info": {
+            "package_name": "org.opnwrld.chatapp",
+            "certificate_hash": "9bbb3186b2189ef16d8f272bdab59362c395cbb4"
+          }
+        },
+        {
+          "client_id": "1024325075073-07g9uc95ccp060qc11qqr1req6qshmnp.apps.googleusercontent.com",
+          "client_type": 3
+        }
+      ],
+      "api_key": [
+        {
+          "current_key": "AIzaSyAP6_PReycdmxydNnmdi-sSG5tS_op13Jc"
+        }
+      ],
+      "services": {
+        "appinvite_service": {
+          "other_platform_oauth_client": [
+            {
+              "client_id": "1024325075073-07g9uc95ccp060qc11qqr1req6qshmnp.apps.googleusercontent.com",
+              "client_type": 3
+            },
+            {
+              "client_id": "1024325075073-7klog3a10mrh1cauvk7ibpf0ou3s29u4.apps.googleusercontent.com",
+              "client_type": 2,
+              "ios_info": {
+                "bundle_id": "com.flutterflow.opnwrld"
+              }
+            }
+          ]
+        }
+      }
+    }
+  ],
+  "configuration_version": "1"
+}
