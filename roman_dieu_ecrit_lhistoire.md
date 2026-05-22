@@ -805,41 +805,57 @@ Elle n'était plus sûre de mériter les mots qu'il y avait dedans.
 
 L'appartement était petit, mais il était à elle.
 
-Sara Mensah, vingt-deux ans, se réveillait chaque matin avec cette certitude légère et précieuse : la pièce qu'elle voyait au réveil était la sienne. Le plafond un peu bas, le ventilateur qui tournait avec un cliquetis sourd, les rideaux en bazin violet qu'elle avait cousus elle-même un dimanche après-midi avec l'aide d'Amélie — tout cela lui appartenait. Pas à sa mère, pas à une résidence universitaire, pas à une famille d'accueil. À elle.
+Sara Mensah, vingt-deux ans, se réveillait chaque matin avec cette certitude-là. Le plafond bas, le ventilateur qui tournait avec son cliquetis sourd, les rideaux en bazin violet qu'elle avait cousus un dimanche avec Amélie — tout ça lui appartenait. Pas à sa mère. Pas à une résidence universitaire. À elle.
 
-L'appartement se trouvait à Yopougon, dans le quartier d'Ananeraie, au deuxième étage d'une maison que possédait un vieil enseignant à la retraite, Monsieur Djédjé, qui vivait au rez-de-chaussée avec sa femme et leurs deux chiens. Monsieur Djédjé était sourd d'une oreille et oubliait parfois les fins de semaine de faire passer les quittances de loyer, ce qui arrangeait Sara les mois serrés. Sa femme, elle, frappait à la porte tous les lundis matin pour apporter de l'attiéké trop salé et regarder l'appartement avec les yeux de quelqu'un qui cherche des traces de garçons. Sara la laissait regarder. Il n'y avait pas de garçons.
+Deuxième étage d'une maison à Yopougon, quartier Ananeraie. Le propriétaire, Monsieur Djédjé, vivait en dessous avec sa femme et deux chiens. Il oubliait parfois les quittances de loyer les mois difficiles, ce qui arrangeait Sara. Sa femme, elle, frappait tous les lundis matin avec de l'attiéké trop salé et les yeux de quelqu'un qui cherche des traces de garçons. Sara la laissait regarder. Il n'y avait pas de garçons.
 
-Elle se levait à six heures. La douche froide — la chauffe-eau était en panne depuis octobre et elle avait renoncé à le signaler — la réveillait mieux que n'importe quel café. Elle s'habillait avec soin, pas par coquetterie mais par principe : elle avait compris dès le premier jour à l'agence que les gens vous regardaient avant de vous écouter. Robe droite couleur ivoire, sandales à talon carré, les cheveux attachés haut. Dans le miroir de la salle de bain trop petite, Sara vérifiait son visage avec le regard professionnel d'une femme qui a appris à utiliser ses atouts sans en dépendre.
+Six heures. Douche froide — le chauffe-eau était en panne depuis octobre et Sara avait renoncé à le signaler. Elle s'habillait avec soin, pas par coquetterie mais par principe. Elle avait compris dès le premier jour à l'agence que les gens vous regardent avant de vous écouter. Robe droite couleur ivoire. Sandales à talon carré. Cheveux attachés haut.
 
-Elle était belle. Elle le savait avec la même neutralité qu'elle savait être grande, qu'elle savait parler vite, qu'elle savait additionner des colonnes de chiffres dans sa tête. C'était un fait, pas une fierté.
+Elle était belle. Elle le savait avec la même neutralité qu'elle savait être grande ou parler vite. C'était un fait, pas une fierté.
 
-Le trajet pour Plateau durait quarante-cinq minutes les bons jours, une heure et quart quand les pluies avaient transformé les rues de Yopougon en rivières boueuses. Sara prenait toujours le même taxi collectif, un Peugeot 405 bordeaux dont le conducteur, Koffi, connaissait tous les raccourcis et toutes les histoires du quartier. Il lui racontait des choses pendant qu'il conduisait — le voisin qui avait vendu son terrain, la fille du chef de quartier qui était rentrée de France avec un mari blanc, l'État qui promettait des routes goudronnées depuis vingt ans. Sara écoutait distraitement, le regard sur Abidjan qui défilait.
+Le taxi collectif était un Peugeot 405 bordeaux. Le conducteur s'appelait Koffi. Il connaissait tous les raccourcis et toutes les histoires du quartier, et il les racontait pendant qu'il conduisait — le voisin qui avait vendu son terrain, la fille du chef de quartier rentrée de France avec un mari blanc. Sara écoutait à moitié. Elle regardait Abidjan défiler.
 
-Elle aimait ce trajet. Elle aimait voir la ville se transformer : les maisons basses de Yopougon avec leurs cours en terre battue et leurs enfants qui jouaient avant l'école, les boutiques aux volets de métal peints en vert ou en rouge, les femmes en pagne qui portaient des bassines sur la tête avec cette grâce particulière qui ne s'apprend pas. Puis le pont qui enjambait la lagune, et de l'autre côté le béton plus haut, les immeubles de verre, les enseignes des banques, Plateau qui sentait la bureaucratie et l'argent neuf. Sara traversait ce pont chaque matin avec le sentiment secret d'être deux personnes en une : la fille de Yopougon, et la femme de Plateau.
+Elle aimait ce trajet. Les maisons basses de Yopougon avec leurs cours en terre battue. Les femmes en pagne qui portaient des bassines sur la tête avec cette grâce qui ne s'apprend pas. Puis le pont sur la lagune, et de l'autre côté le béton plus haut, les immeubles de verre, le Plateau qui sentait la bureaucratie et l'argent neuf.
 
-L'agence s'appelait Créations Plurielles. Elle occupait le troisième étage d'un immeuble sur le boulevard Clozel, entre une agence de voyages et un cabinet de comptabilité. Treize personnes, deux directeurs associés — Monsieur Bamba qui était ivoirien et Madame Lopes qui était franco-portugaise — et des clients qui allaient de la brasserie nationale à une chaîne d'hôtels sénégalaise en passant par un candidat aux élections locales qui leur demandait de lui fabriquer une image de famille qu'il n'avait pas.
+Chaque matin, Sara traversait ce pont avec le sentiment secret d'être deux personnes en une. La fille de Yopougon. La femme de Plateau.
 
-Sara avait été recrutée comme assistante chargée de communication. En dix-huit mois, elle était devenue chargée de projet. Elle travaillait vite, pensait vite, et avait le don rare de comprendre ce que les clients voulaient dire quand ils disaient autre chose. Madame Lopes lui avait dit un jour : "Vous avez l'instinct de la communication, Sara. C'est pas quelque chose qui s'enseigne." Sara avait hoché la tête, sérieuse, mais dans l'ascenseur qui redescendait, elle avait souri à son reflet dans les portes en acier.
+---
+
+L'agence s'appelait Créations Plurielles. Troisième étage, boulevard Clozel. Treize personnes, deux directeurs — Monsieur Bamba et Madame Lopes — et des clients qui allaient d'une brasserie nationale à un candidat aux élections locales qui voulait qu'on lui fabrique une image de famille qu'il n'avait pas.
+
+Sara avait été recrutée assistante. En dix-huit mois, elle était devenue chargée de projet. Elle travaillait vite, pensait vite, avait le don de comprendre ce que les clients voulaient dire quand ils disaient autre chose.
+
+Un jour, Madame Lopes lui dit dans le couloir : "Vous avez l'instinct de la communication, Sara. Ça ne s'enseigne pas."
+
+Sara hocha la tête, sérieuse. Mais dans l'ascenseur qui redescendait, elle sourit à son reflet dans les portes en acier.
 
 *Ce genre de compliment, avant, je ne savais pas où le mettre. Maintenant, je sais. Je le range là où il servira.*
 
-Ce soir-là — un jeudi du mois de mars — Sara était invitée à une soirée de lancement. Pas par plaisir : Créations Plurielles avait géré une partie de la campagne d'image d'un nouveau produit de soin pour cheveux, une marque panafricaine qui s'installait en Côte d'Ivoire. La soirée avait lieu à l'Hôtel Ivoire. Madame Lopes voulait que Sara y soit "pour représenter l'agence et surveiller que tout se passe comme prévu."
+Ce soir-là — un jeudi de mars — Madame Lopes lui demanda de représenter l'agence à une soirée de lancement. Une marque panafricaine de soins pour cheveux s'installait en Côte d'Ivoire. La soirée avait lieu à l'Hôtel Ivoire.
 
-Sara avait mis la petite robe noire. Celle qu'elle gardait pour les occasions sérieuses, avec les boucles d'oreilles dorées que sa mère lui avait données pour sa première journée de travail. Elle avait pris un taxi seule — pas de collectif ce soir, elle n'allait pas arriver à une soirée à l'Hôtel Ivoire en sentant le diesel.
+Sara mit la petite robe noire. Celle pour les occasions sérieuses, avec les boucles d'oreilles dorées que sa mère lui avait données pour sa première journée de travail. Elle prit un taxi seul. Pas de collectif ce soir.
+
+---
 
 L'Hôtel Ivoire se voyait de loin. Sara l'avait aperçu des dizaines de fois depuis la route, toujours avec ce mélange d'admiration et d'indifférence de quelqu'un qui regarde un tableau sans être sûr d'en avoir besoin. Mais y entrer, c'était différent.
 
-Le hall était haut, lumineux, avec des plafonds que la sobriété avait protégés du mauvais goût. Des colonnes de marbre clair, des arrangements floraux blancs dans des vases immenses, le murmure climatisé de l'air conditionné qui contredisait le monde chaud et bruissant du dehors. Des portiers en uniforme qui ouvraient les portes avec un sérieux de cérémonie. Sara avait marché jusqu'à la salle de réception en prenant garde à ce que ses talons ne la fassent pas trébucher sur le carrelage poli.
+Le hall était haut, lumineux. Des colonnes de marbre clair. Des arrangements floraux blancs dans des vases immenses. Le murmure de l'air conditionné qui contredisait le monde chaud du dehors. Des portiers qui ouvraient les portes avec un sérieux de cérémonie.
 
-La salle était déjà pleine quand elle arriva. Deux cents personnes peut-être, dans la lumière dorée des lustres. Les femmes étaient en robes longues — des wax imprimés découpés par des couturiers qui avaient compris comment marier la tradition et la modernité, des tissus simples aux coupes parfaites, quelques pièces occidentales hors de prix. Les hommes portaient des costumes ou des agbadas, certains avec la désinvolture de ceux qui ont été habillés comme ça depuis l'enfance. Des serveurs circulaient avec des plateaux de canapés et de verres de champagne. La musique — quelque chose entre le jazz et le coupé-décalé — était assez basse pour permettre les conversations.
+Sara marcha jusqu'à la salle de réception en faisant attention à ce que ses talons ne la fassent pas trébucher sur le carrelage poli.
 
-Sara prit un verre, vérifia que le responsable de la décoration avait bien placé les bannières de la marque là où elles devaient être — oui, c'était bon — et commença à circuler. Elle connaissait quelques personnes. Elle en salua plusieurs. Elle échangea des cartes.
+Deux cents personnes dans la lumière dorée des lustres. Les femmes en wax imprimé découpé par des couturiers qui savaient marier la tradition et la modernité. Les hommes en costumes ou en agbadas. Des serveurs avec des plateaux de canapés et de champagne. La musique — quelque chose entre le jazz et le coupé-décalé — assez basse pour permettre les conversations.
+
+Sara prit un verre, vérifia que les bannières de la marque étaient bien placées — oui, c'était bon — et commença à circuler.
 
 Elle ne vit pas Marcus Kouassi entrer.
 
-Elle le vit déjà là, debout à trois mètres d'elle, en train de parler à un homme plus âgé, un costume gris anthracite qui avait dû coûter ce que Sara gagnait en deux mois. Pas le genre de costume qui crie l'argent — au contraire, c'était sa discrétion qui trahissait le prix. La coupe parfaite, l'étoffe qui tombait avec une précision que les tailleurs du marché ne pourraient jamais reproduire. Il portait une montre au poignet gauche, sobre, cadran blanc sur bracelet en cuir sombre. Sa peau était sombre et lisse, il mesurait au moins un mètre quatre-vingt-cinq, et il y avait dans sa façon de se tenir cette qualité particulière de certains hommes qui n'ont jamais eu besoin de prouver qu'ils occupaient leur place dans un espace.
+Elle le vit déjà là.
 
-Il n'était pas le plus beau homme de la salle. Mais il était le plus présent.
+Debout à trois mètres, il parlait à un homme plus âgé. Costume gris anthracite. Le genre de costume qui ne crie pas l'argent — au contraire, c'est sa discrétion qui trahit le prix. La coupe parfaite. Une montre sobre au poignet gauche, cadran blanc sur bracelet en cuir sombre. Sa peau était sombre et lisse. Il mesurait au moins un mètre quatre-vingt-cinq, et il y avait dans sa façon de se tenir cette qualité particulière de certains hommes qui n'ont jamais eu besoin de prouver qu'ils occupaient leur place.
+
+Il n'était pas le plus beau homme de la salle.
+
+Il était le plus présent.
 
 Sara s'en détourna.
 
@@ -849,29 +865,31 @@ Cinq minutes plus tard, il était à côté d'elle.
 
 Ce n'était pas une question. Sara se retourna.
 
-De près, il était plus jeune qu'elle ne l'avait cru — trente ans, peut-être trente-deux. Des yeux sombres avec quelque chose de tranquille à l'intérieur, comme quelqu'un qui a appris à ne jamais laisser voir ce qu'il pense en premier. Il souriait légèrement, avec le coin droit seulement.
+De près, il était plus jeune qu'elle n'avait cru — trente ans, peut-être trente-deux. Des yeux sombres avec quelque chose de tranquille à l'intérieur, comme quelqu'un qui a appris à ne jamais laisser voir ce qu'il pense en premier. Un sourire au coin droit seulement.
 
-"Et vous êtes?" dit Sara, avec le ton de quelqu'un qui sait qu'il connaît déjà la réponse mais qui préfère que l'autre se présente lui-même.
+"Et vous êtes?" dit Sara, avec le ton de quelqu'un qui connaît déjà la réponse mais préfère que l'autre se présente lui-même.
 
-"Marcus Kouassi. Je connais Madame Lopes." Il tendit la main. Sa poignée était ferme, ni agressive ni molle. "C'est vous qui avez géré la campagne d'identité visuelle?"
+"Marcus Kouassi." Il tendit la main. Sa poignée était ferme — ni agressive ni molle. "C'est vous qui avez géré la campagne d'identité visuelle?"
 
 "Une partie."
 
 "La partie qui fonctionne."
 
-Sara le regarda. *Soit il a vraiment regardé le travail. Soit c'est son entrée en matière habituelle. Les deux ne s'excluent pas.*
+*Soit il a vraiment regardé le travail. Soit c'est son entrée en matière habituelle. Les deux ne s'excluent pas.*
 
 "Qu'est-ce qui vous fait dire que ça fonctionne?" dit-elle.
 
-Il esquissa un vrai sourire cette fois. "Le fait qu'on est tous ici ce soir, que personne n'a l'air de s'ennuyer, et que les bannières sont placées exactement là où l'œil se pose naturellement. Ce n'est pas le hasard."
+Un vrai sourire cette fois. "Le fait qu'on est tous là ce soir, que personne ne s'ennuie, et que les bannières sont placées exactement là où l'œil se pose naturellement. Ce n'est pas le hasard."
 
 Il avait regardé les bannières. Sara but une gorgée de champagne pour ne pas montrer qu'elle était surprise.
 
-Ils parlèrent vingt minutes. Il connaissait la communication, mais ce n'était pas son domaine — il était dans la finance et le développement immobilier, il avait une structure qui investissait dans plusieurs pays de la sous-région. Il lisait, il voyageait, il avait une façon de parler des choses qui montrait qu'il avait une opinion sans jamais avoir l'air d'imposer. Il posait des questions vraies, le genre de questions qui prouvaient qu'il avait écouté ce qu'elle avait dit trente secondes avant. Il riait facilement, d'un rire bas, contenu, qui donnait envie de dire quelque chose d'intelligent pour l'entendre encore.
+Ils parlèrent vingt minutes.
+
+Il connaissait la communication, mais son domaine c'était la finance et le développement immobilier. Il avait une structure qui investissait dans plusieurs pays de la sous-région. Il lisait, il voyageait, il avait une façon de parler qui montrait qu'il avait une opinion sans jamais l'imposer. Il posait des questions vraies — le genre qui prouvaient qu'il avait écouté ce qu'elle avait dit trente secondes avant. Il riait facilement, d'un rire bas et contenu, qui donnait envie de dire quelque chose d'intelligent pour l'entendre encore.
 
 *Il est fascinant,* pensa Sara, et elle se méfia d'elle-même aussitôt. *C'est une soirée professionnelle. C'est le genre d'homme qui sait exactement l'effet qu'il produit.*
 
-Mais quand il dit : "Je dîne rarement ici, mais ce soir il y a quelqu'un qui m'a donné envie de proposer à quelqu'un d'autre de dîner" — formulé avec une légèreté qui ne camouflait pas vraiment l'intention — Sara sentit quelque chose dans sa poitrine qui ne ressemblait pas à de la méfiance.
+Mais quand il dit — avec une légèreté qui ne camouflait pas vraiment l'intention — "Je dîne rarement ici, mais ce soir il y a quelqu'un qui m'a donné envie de proposer à quelqu'un d'autre de dîner", Sara sentit quelque chose dans sa poitrine qui ne ressemblait pas à de la méfiance.
 
 "Je ne dîne pas avec des hommes que je viens de rencontrer," dit-elle.
 
@@ -881,51 +899,55 @@ Elle rit malgré elle. "C'est une logique très particulière."
 
 "Ça marche quand même?"
 
-Une pause. Sara but la dernière gorgée de son champagne.
+Une pause. Sara but la dernière gorgée de champagne.
 
 "Je vais y réfléchir."
 
 Il lui laissa sa carte sans insister davantage, salua quelqu'un de l'autre côté de la salle, et s'éloigna avec la même tranquillité qu'il avait apportée en s'approchant.
 
-Sara regarda la carte. Marcus T. Kouassi. Directeur Général. KM Capital Investments.
+*Marcus T. Kouassi. Directeur Général. KM Capital Investments.*
 
 *Ce genre d'homme, ça n'arrive pas à toi normalement.*
 
-Elle rappela. Le lendemain à midi. Il décrocha à la deuxième sonnerie comme s'il n'avait pas attendu.
+---
 
-Le Café de Rome était à Cocody, sur l'Avenue Chardy, dans une de ces maisons coloniales réhabilitées avec le goût de quelqu'un qui avait voyagé mais n'avait pas oublié d'où il venait. La terrasse était couverte de bougainvillées, les tables en bois sombre portaient des bougies dans des verres à thé, et le menu proposait des choses que Sara reconnaissait et d'autres qu'elle dut lui faire expliquer — il le fit simplement, sans condescendance.
+Elle rappela le lendemain à midi. Il décrocha à la deuxième sonnerie.
+
+Le Café de Rome à Cocody, dans une maison coloniale réhabilitée avec le goût de quelqu'un qui avait voyagé sans oublier d'où il venait. La terrasse couverte de bougainvillées, des bougies dans des verres à thé, un menu qu'elle ne connaissait pas entièrement — il expliqua simplement, sans condescendance.
 
 Le dîner dura trois heures.
 
-Il lui parla de son père, qui avait commencé comme conducteur de taxi et avait fini propriétaire de cinq camions de transport. Il lui parla de Dakar, où il avait passé deux ans pour une affaire. Il lui parla de ce livre qu'il avait lu trois fois — L'Aventure ambiguë de Cheikh Hamidou Kane — parce qu'il y trouvait quelque chose de différent à chaque lecture selon où il en était dans sa vie. Il lui demanda ce qu'elle voulait construire dans dix ans. Pas "où vous voyez-vous" comme une question de recrutement — il dit vraiment "qu'est-ce que vous voulez construire" en la regardant comme si la réponse l'intéressait vraiment.
+Il lui parla de son père qui avait commencé conducteur de taxi et avait fini propriétaire de cinq camions de transport. Il lui parla de Dakar où il avait passé deux ans pour une affaire. Il lui parla d'un livre qu'il avait lu trois fois — *L'Aventure ambiguë* de Cheikh Hamidou Kane — parce qu'il y trouvait quelque chose de différent selon où il en était dans sa vie.
 
-Sara dit des choses vraies. Elle ne sait pas pourquoi. D'habitude elle était plus prudente. Elle dit qu'elle voulait un jour avoir sa propre agence. Elle dit qu'elle avait peur de la médiocrité plus que de l'échec. Elle dit que sa mère lui avait appris que l'argent ne rend pas les gens différents, ça les rend plus de ce qu'ils sont déjà — et qu'elle avait mis longtemps à comprendre que c'était une mise en garde.
+Puis il lui demanda ce qu'elle voulait construire dans dix ans. Pas "où vous voyez-vous" comme dans un entretien. Il dit vraiment "qu'est-ce que vous voulez construire" en la regardant comme si la réponse l'intéressait vraiment.
+
+Sara dit des choses vraies. Elle ne sut pas pourquoi. D'habitude elle était plus prudente. Elle dit qu'elle voulait sa propre agence un jour. Qu'elle avait peur de la médiocrité plus que de l'échec. Que sa mère lui avait appris que l'argent ne rend pas les gens différents — ça les rend plus de ce qu'ils sont déjà — et qu'elle avait mis longtemps à comprendre que c'était une mise en garde.
 
 Il l'écoutait. Vraiment.
 
-*Je ne suis pas en train de tomber,* se dit Sara dans les toilettes du restaurant, en regardant son reflet dans le miroir. *Je suis en train d'observer quelque chose d'intéressant. Ce n'est pas pareil.*
+*Je ne suis pas en train de tomber,* se dit Sara dans les toilettes du restaurant. *Je suis en train d'observer quelque chose d'intéressant. Ce n'est pas pareil.*
 
-Il la raccompagna jusqu'au taxi qu'il avait fait appeler. Sur le trottoir, dans l'air tiède de la nuit d'Abidjan, il ne tenta rien. Pas un geste de trop, pas de la main sur le dos, pas d'inclination du buste vers elle. Il se contenta de la regarder un instant.
+Sur le trottoir, dans l'air tiède de la nuit, il ne tenta rien. Pas la main dans le dos. Pas l'inclinaison vers elle. Il se contenta de la regarder un instant.
 
 "Je voudrais vous revoir," dit-il.
 
 Sara hocha la tête. "Pourquoi pas."
 
-Dans le taxi, elle regarda défiler les lumières d'Abidjan la nuit. La lagune brillait sous la lune, les immeubles de Plateau projetaient des rectangles lumineux dans l'obscurité, et quelque part dans la ville, Marcus Kouassi rentrait chez lui dans une voiture qui ne ressemblait pas à un taxi.
+Dans le taxi, les lumières d'Abidjan défilaient. La lagune brillait sous la lune. Sara fixa le plafond du taxi, puis le plafond de son appartement.
 
-Dans son appartement à Ananeraie, le ventilateur tournait avec son cliquetis. Sara s'allongea sur son lit sans se déshabiller. Elle fixa le plafond.
-
-*Ce genre d'homme, ça n'arrive pas à toi normalement.* La pensée revenait. *Les filles comme toi, de Yopougon, qui travaillent dans des agences de communication et qui prennent le taxi collectif le matin — ce genre d'homme vous regarde peut-être. Mais il ne s'assoit pas en face de vous pendant trois heures en écoutant vraiment.*
+*Ce genre d'homme, ça n'arrive pas à toi normalement. Les filles comme toi, de Yopougon, qui travaillent dans des agences et prennent le taxi collectif le matin — ce genre d'homme vous regarde peut-être. Mais il ne s'assoit pas en face de vous pendant trois heures en écoutant vraiment.*
 
 Elle ne dormit pas avant deux heures du matin.
 
+---
+
 Les semaines suivantes eurent la qualité du rêve éveillé.
 
-Marcus n'était pas pressé. Il n'appelait pas trois fois par jour, n'envoyait pas de messages toutes les heures — il avait quelque chose de plus redoutable que l'insistance : la constance. Il appelait deux fois par semaine, à des heures raisonnables. Il proposait des choses précises — pas "on se voit?" mais "samedi, il y a un concert au CCFCI, ça te dit?" ou "j'ai trouvé un endroit qui fait du kedjenou comme à Bouaké, si tu veux on y va jeudi". Il se souvenait de tout ce qu'elle lui avait dit. Quand elle mentionna en passant qu'elle aimait les mandarines, il en apporta un sachet la fois suivante, naturellement, sans en faire un geste.
+Marcus n'était pas pressé. Il n'appelait pas trois fois par jour. Il avait quelque chose de plus redoutable que l'insistance : la constance. Il appelait deux fois par semaine, à des heures raisonnables. Il proposait des choses précises — pas "on se voit?" mais "samedi il y a un concert au CCFCI, ça te dit?" Il se souvenait de tout ce qu'elle disait. Quand elle mentionna qu'elle aimait les mandarines, il en apporta un sachet la fois suivante, naturellement, sans en faire un geste.
 
-Amélie, son amie depuis la fac, qui partageait avec elle un groupe WhatsApp où elles se racontaient tout, dit un soir :
+Un soir, Amélie demanda au téléphone :
 
-"Sara, je te pose la question directement. Est-ce qu'il a des qualités que tu peux me lister en dehors de l'argent et des costumes?"
+"Sara, je te pose la question directement. Il a des qualités que tu peux me lister en dehors de l'argent et des costumes?"
 
 "Il m'écoute."
 
@@ -937,15 +959,39 @@ Amélie, son amie depuis la fac, qui partageait avec elle un groupe WhatsApp où
 
 Sara réfléchit. "Je le sens."
 
-Amélie avait soufflé doucement au téléphone, le genre de soupir de quelqu'un qui décide de ne pas insister davantage. "Je suis contente que tu sois heureuse. Fais attention quand même."
+Amélie souffla doucement — le soupir de quelqu'un qui décide de ne pas insister. "Je suis contente que tu sois heureuse. Fais attention quand même."
 
-Sara avait raccroché un peu agacée. *Amélie n'a jamais su faire confiance à ce qui est bien.*
+*Amélie n'a jamais su faire confiance à ce qui est bien.*
 
-Un samedi, Marcus l'emmena à Grand-Bassam dans une voiture qui sentait le cuir neuf. Ils traversèrent la forêt de cocotiers, ils marchèrent sur la plage rouge et noire, ils mangèrent du poisson braisé dans un restaurant de paille au bord de l'eau où le patron connaissait Marcus par son prénom. Le soir, le soleil se noyait dans la mer et Sara avait le sel sur la peau et dans les cheveux et elle se dit :
+Un samedi, Marcus l'emmena à Grand-Bassam dans une voiture qui sentait le cuir neuf. Ils traversèrent la forêt de cocotiers. Ils marchèrent sur la plage rouge et noire. Ils mangèrent du poisson braisé dans un restaurant de paille au bord de l'eau où le patron connaissait Marcus par son prénom.
 
-*Je crois que je tombe. Non. Non, c'est l'éblouissement. Éblouissement et amour, ce n'est pas pareil.*
+Le soir, le soleil se noyait dans la mer et Sara avait le sel sur la peau et dans les cheveux et elle pensa :
 
-Mais quand il prit sa main sur la table pour montrer quelque chose dans le ciel — un oiseau, un pélican qui plongeait — et qu'il oublia de la lâcher, et qu'elle oublia aussi qu'il ne l'avait pas lâchée, Sara pensa : *Je ne suis plus très sûre de connaître la différence.*
+*Je crois que je tombe. Non. C'est l'éblouissement. Éblouissement et amour, ce n'est pas pareil.*
+
+Mais quand Marcus prit sa main sur la table pour lui montrer un pélican qui plongeait — et qu'il oublia de la lâcher — et qu'elle oublia aussi qu'il ne l'avait pas lâchée — Sara pensa :
+
+*Je ne suis plus très sûre de connaître la différence.*
+
+---
+
+Ce soir-là, quelque chose arriva.
+
+Ils marchaient sur la plage au coucher du soleil, les pieds dans l'eau tiède. Marcus s'arrêta. Il tourna vers elle et, sans prévenir, il lui prit le visage entre les deux mains. Il la regarda. Juste la regarda, pendant ce qui parut une éternité — ses yeux sombres sur les siens, l'eau qui montait sur leurs chevilles.
+
+Puis il dit, très doucement :
+
+"Tu sais, j'ai rencontré des femmes intelligentes. Des femmes belles. Mais une femme intelligente et belle et honnête — ça, Sara, c'est rare. C'est vraiment rare."
+
+Elle ne répondit pas. Elle ne pouvait pas répondre.
+
+Il l'embrassa. Doucement d'abord, presque une question. Puis avec quelque chose de plus profond, plus vrai — le genre de baiser qui ne ressemble pas à une prise mais à une promesse.
+
+L'eau montait autour de leurs pieds.
+
+Sara ferma les yeux et pensa : *Voilà. Voilà comment on tombe.*
+
+Elle ne pensait pas encore que ça faisait mal, de tomber.
 
 ---
 
@@ -953,7 +999,7 @@ Mais quand il prit sa main sur la table pour montrer quelque chose dans le ciel 
 
 Maman Aya vint à Abidjan en mai.
 
-Elle prit le car depuis Daoukro, six heures de route avec un sachet de beignets chauds pour le voyage et son sac à bandoulière en cuir marron qu'elle portait depuis quinze ans. Sara l'attendait à la gare routière de Yopougon, et quand elle vit sa mère descendre du car — petite, trapue, le pagne noué haut sur la poitrine, les cheveux gris tressés serrés — elle sentit quelque chose dans sa poitrine se détendre, comme un nœud qu'elle n'avait pas su qu'elle portait.
+Six heures de car depuis Daoukro, avec un sachet de beignets pour le voyage et son vieux sac à bandoulière en cuir marron. Sara l'attendait à la gare routière de Yopougon, et quand elle vit sa mère descendre — petite, trapue, pagne noué haut sur la poitrine, cheveux gris tressés serrés — quelque chose dans sa poitrine se dénoua. Un nœud qu'elle n'avait pas su qu'elle portait.
 
 Maman Aya l'examina des pieds à la tête avec l'œil des mères qui ne perdent jamais rien.
 
@@ -967,89 +1013,117 @@ Sara rit. "Tu ne l'as même pas encore vu."
 
 "Je le verrai ce soir."
 
-Le dîner eut lieu dans l'appartement d'Ananeraie. Sara avait cuisiné — du foutou et de la sauce arachide, le plat de la maison, celui qu'elle avait appris à faire debout à côté de sa mère à l'âge de dix ans. Marcus arriva à l'heure exacte, avec des oranges et une bouteille d'eau minérale gazeuse pour Maman Aya dont Sara lui avait dit qu'elle ne buvait pas d'alcool. Il salua la mère avec le respect de quelqu'un qui a grandi avec des valeurs — les deux mains tendues, la tête légèrement inclinée.
+Le dîner eut lieu dans l'appartement d'Ananeraie. Sara avait cuisiné du foutou et de la sauce arachide — le plat de la maison, appris debout à côté de sa mère à dix ans. Marcus arriva à l'heure exacte, avec des oranges et une bouteille d'eau minérale gazeuse pour Maman Aya, dont Sara lui avait dit qu'elle ne buvait pas d'alcool. Il salua la mère avec les deux mains tendues et la tête légèrement inclinée.
 
-Maman Aya fut polie. Impeccablement polie. Elle posa des questions raisonnables sur sa famille, ses activités, ses origines. Marcus répondit avec fluidité, avec chaleur même. Il avait l'art de parler aux aînés.
+Maman Aya fut parfaitement polie. Des questions raisonnables sur sa famille, ses activités, ses origines. Marcus répondit avec chaleur. Il avait l'art de parler aux aînés.
 
-Après le dîner, quand Marcus fut allé aux toilettes, Maman Aya prit la main de Sara sur la table.
+Après le dîner, quand Marcus fut aux toilettes, Maman Aya prit la main de Sara sur la table.
 
 "Ce monsieur..."
 
 "Il est bien, Maman."
 
-"Laisse-moi finir. Ce monsieur est bien élevé, bien habillé, il sait se tenir." Elle baissa la voix. "Mais il y a quelque chose dans ses yeux quand il ne sait pas qu'on le regarde."
+"Laisse-moi finir." Elle baissa la voix. "Ce monsieur est bien élevé, bien habillé, il sait se tenir." Elle fit une pause. "Mais il y a quelque chose dans ses yeux quand il ne sait pas qu'on le regarde."
 
 Sara retira doucement sa main. "Quoi dans ses yeux?"
 
-Maman Aya réfléchit. "Quelque chose de fermé. Quelque chose qu'il ne te montrera que quand il aura décidé que tu ne peux plus partir."
+Maman Aya réfléchit un moment. "Quelque chose de fermé. Quelque chose qu'il ne te montrera que quand il aura décidé que tu ne peux plus partir."
 
-La gorge de Sara se resserra. Elle s'entendit dire, d'une voix plus froide qu'elle ne l'avait voulu : "Maman, il est bien."
+La gorge de Sara se resserra. Elle entendit sa propre voix, plus froide qu'elle ne le voulait : "Maman, il est bien."
 
-Maman Aya hocha la tête lentement. Elle ne dit plus rien. Marcus revint et la conversation reprit, légère et convenable, jusqu'à ce qu'il prenne congé.
+Maman Aya hocha la tête lentement. Elle ne dit plus rien. Marcus revint et la conversation reprit, légère et convenable.
 
-Sara ne dormit pas bien cette nuit-là, sa mère dans l'autre pièce. Mais au matin elle avait décidé que sa mère ne connaissait pas Marcus. Elle ne le connaissait pas encore.
+Sara ne dormit pas bien cette nuit-là. Mais au matin, elle avait décidé que sa mère ne connaissait pas Marcus. Pas encore.
+
+*Maman a peur pour moi, c'est tout. Elle a toujours peur.*
+
+Mais la phrase restait là, quelque part en dessous.
+
+*Quelque chose qu'il ne te montrera que quand il aura décidé que tu ne peux plus partir.*
+
+Sara l'enterra. Profond.
 
 ---
 
 Le mariage eut lieu en novembre, dix-huit mois après la soirée à l'Hôtel Ivoire.
 
-Le Palais des Congrès d'Abidjan, la grande salle, cinq cents invités. Sara avait choisi une robe ivoire à encolure bateau, brodée à la main sur le corsage, avec une traîne courte qui ne la rendait pas impraticable. Les coiffeuses avaient travaillé deux heures sur ses cheveux. Amélie était demoiselle d'honneur — elle avait embrassé Sara fort dans la loge, les yeux légèrement brillants, et n'avait rien dit d'autre que "tu es magnifique".
+Le Palais des Congrès d'Abidjan, la grande salle, cinq cents invités. Sara avait choisi une robe ivoire à encolure bateau, brodée à la main sur le corsage, avec une traîne courte. Les coiffeuses avaient travaillé deux heures. Amélie était demoiselle d'honneur. Elle avait embrassé Sara fort dans la loge, les yeux légèrement brillants, et n'avait rien dit d'autre que "tu es magnifique."
 
-La salle était décorée en blanc et or. Des arrangements floraux d'orchidées blanches et de roses champagne sur chaque table. Un orchestre qui jouait de la musique live pendant le cocktail. Les traiteurs avaient préparé deux menus, l'un international, l'autre ivoirien — Marcus avait insisté pour qu'il y ait du foufou pour les anciens. Ce détail avait touché Sara.
+La salle était décorée en blanc et or. Des orchidées blanches sur chaque table. Un orchestre pour le cocktail. Marcus avait insisté pour qu'il y ait du foufou pour les anciens — ce détail avait touché Sara. *Il pense aux vieux. Il n'oublie pas d'où il vient.*
 
-Les photographes circulaient. Les invités portaient leurs plus beaux habits. Des femmes que Sara ne connaissait pas venaient lui prendre les mains, "vous faites le plus beau couple d'Abidjan", "que Dieu vous protège ma fille". Marcus regardait Sara depuis l'autre bout de la salle avec ce sourire tranquille, celui du coin droit seulement, et Sara sentait encore — encore — cette chose dans sa poitrine qui ressemblait à de l'amour.
+Tout au long de la soirée, des femmes qu'elle ne connaissait pas lui prenaient les mains : "Vous faites le plus beau couple d'Abidjan." "Que Dieu vous protège." "Ce mariage est une bénédiction."
 
-Les photos furent belles. Sara le sut le soir même, quand le photographe lui en montra quelques-unes sur son appareil avant de partir. Elle et Marcus, dans la lumière d'or des lustres, Sara qui riait à quelque chose qu'il venait de dire, la tête légèrement rejetée en arrière — un moment vrai dans un décor de fête. Cette photo-là, elle la ferait encadrer.
+Marcus regardait Sara depuis l'autre bout de la salle avec ce sourire tranquille, celui du coin droit seulement. Sara sentait encore — encore — cette chose dans sa poitrine qui ressemblait à de l'amour.
 
-Amélie posta quelques clichés sur les réseaux sociaux. Les commentaires affluèrent. "Waouh, Sara, tu es une reine." "Le couple parfait." "Que Dieu bénisse ce foyer."
+Le photographe montra quelques clichés avant de partir. L'un d'eux : Sara qui riait à quelque chose que Marcus venait de dire, la tête légèrement rejetée en arrière. Un moment vrai dans un décor de fête. Cette photo-là, elle la ferait encadrer.
 
-Sara lut ces messages dans la voiture qui les emmena à leur suite de l'hôtel. Elle souriant à l'écran.
+Dans la voiture qui les emmena à leur suite, Sara lisait les messages sur les réseaux sociaux. "Waouh Sara, tu es une reine." "Le couple parfait." "Que Dieu bénisse ce foyer."
 
 Marcus prit le téléphone de sa main avec douceur. "Ce soir, c'est juste nous."
 
 Elle le laissa faire.
 
+Elle ne vit pas le regard qu'il jeta à son propre téléphone une seconde plus tard. Elle n'y pensa pas.
+
+Elle était heureuse.
+
 ---
 
-La villa de Cocody était grande. Trop grande peut-être pour deux personnes, mais Marcus avait dit : "On la remplira." Le quartier de Riviera 3, derrière des murs couverts de bougainvillées mauves. Un jardin avec un frangipanier et un bassin. Trois chambres, deux salons, une cuisine équipée que Sara découvrit avec le sentiment mitigé de quelqu'un qui ne sait pas encore si cette magnificence lui appartient ou si elle y est en visite.
+La villa de Cocody était grande. Trop grande peut-être pour deux personnes, mais Marcus avait dit : "On la remplira." Riviera 3, derrière des murs couverts de bougainvillées mauves. Un jardin avec un frangipanier et un bassin. Trois chambres, deux salons, une cuisine équipée.
+
+Sara la découvrit avec le sentiment mitigé de quelqu'un qui ne sait pas encore si cette magnificence lui appartient ou si elle y est en visite.
 
 Les premiers mois furent doux.
 
-Marcus rentrait pour le dîner. Ils mangeaient ensemble sur la terrasse les soirs où il ne pleuvait pas, dans la lumière de la lampe à huile que Sara avait achetée au marché de Treichville parce qu'elle lui rappelait les dîners de son enfance. Ils parlaient de leurs journées. Il lui demandait ce qu'elle avait fait, elle lui posait des questions sur ses affaires. Le week-end, ils allaient parfois au cinéma, parfois chez des amis. Ils avaient des projets — voyager, rénover le jardin, aller voir la famille de Marcus à Bouaké.
+Marcus rentrait pour le dîner. Ils mangeaient sur la terrasse les soirs sans pluie, dans la lumière de la lampe à huile que Sara avait achetée au marché de Treichville. Ils parlaient de leurs journées. Le week-end, cinéma, amis, projets. Sara continuait à l'agence — c'était important pour elle, elle l'avait dit clairement avant le mariage.
 
-Sara continuait à travailler à l'agence. C'était important pour elle, elle l'avait dit clairement avant le mariage, et Marcus avait dit bien sûr, naturellement, je ne suis pas le genre d'homme qui empêche sa femme de travailler.
+"Naturellement," avait dit Marcus. "Je ne suis pas le genre d'homme qui empêche sa femme de travailler."
 
 *C'est bien,* pensait Sara le matin en s'habillant. *C'est une vraie vie. Une vie construite.*
 
+---
+
 Les premières fissures furent si fines qu'elle faillit ne pas les voir.
 
-Un mardi soir — Marcus rentrait toujours à dix-neuf heures, c'était leur habitude — l'horloge du salon marqua vingt heures, puis vingt et une. Sara réchauffa le dîner. À vingt-deux heures, il envoya un message : "Réunion qui s'étire. Ne m'attends pas." Elle mangea seule. Ce n'était pas grave, les hommes d'affaires avaient des réunions.
+Un mardi soir — Marcus rentrait toujours à dix-neuf heures — l'horloge marqua vingt heures. Puis vingt et une. Sara réchauffa le dîner. À vingt-deux heures, un message : "Réunion qui s'étire. Ne m'attends pas." Elle mangea seule. Ce n'était pas grave.
 
-Mais cela se répéta. Pas tous les soirs — non, ce qui était insidieux, c'est que ce n'était pas tous les soirs. Assez pour que Sara commence à noter, sans se l'avouer, que les absences se rapprochaient. Et quand Marcus rentrait les soirs tardifs, son téléphone était systématiquement retourné face contre la table. Ce détail — ce téléphone retourné — Sara l'avait remarqué et s'était raisonnée.
+Mais cela se répéta. Pas tous les soirs — c'est ça qui était insidieux. Assez pour que Sara commence à noter, sans se l'avouer, que les absences se rapprochaient. Et quand Marcus rentrait tard, son téléphone était systématiquement retourné face contre la table.
 
-*C'est normal. Il a des affaires confidentielles. On ne laisse pas son téléphone d'homme d'affaires à portée de tous.*
+Ce téléphone retourné.
+
+*C'est normal. Il a des affaires confidentielles.*
 
 Mais il n'y avait pas "tous" dans cette maison. Il n'y avait qu'elle.
 
-*Arrête. Tu cherches des problèmes là où il n'y en a pas. Tu construis une prison avec tes propres pensées.*
+*Arrête. Tu cherches des problèmes où il n'y en a pas.*
 
-Elle s'en convainquit. Elle rangea la note mentale, ferma le tiroir.
+Elle ferma le tiroir.
+
+Un soir pourtant — un soir ordinaire, Marcus sous la douche, son téléphone sur le comptoir de la cuisine — un message arriva. Sara ne chercha pas à le lire. Mais l'écran s'alluma tout seul, juste une seconde, et elle vit le prénom.
+
+*Nadia.*
+
+Et rien d'autre, parce que l'écran se verrouilla.
+
+Juste un prénom. Ça pouvait être n'importe quoi. Une collègue. Une cliente.
+
+Sara retourna aux fourneaux.
+
+Ses mains tremblaient légèrement en remuant la sauce.
 
 ---
 
 Naomi naquit en septembre de la deuxième année.
 
-Le travail dura onze heures. Marcus fut là du début à la fin, dans la salle d'attente d'abord, puis à côté d'elle quand les médecins le permirent, sa main dans la sienne. Quand on lui posa le bébé dans les bras — ce bébé plissé et furieux contre la lumière, les poings serrés de quelqu'un qui refuse d'être là — Marcus pleurait.
+Le travail dura onze heures. Marcus fut là du début à la fin. Quand on lui posa le bébé dans les bras — ce bébé plissé et furieux, les poings serrés de quelqu'un qui refuse d'être là — Marcus pleurait.
 
 Sara ne l'avait jamais vu pleurer.
 
-Il ne pleurait pas bruyamment, pas de façon spectaculaire. C'étaient des larmes qui coulaient simplement sur ses joues, les yeux fixés sur ce petit visage, et sa voix quand il dit "bonjour Naomi" était réduite à presque rien, à un souffle.
+Des larmes simples, sans bruit, les yeux fixés sur ce petit visage. Sa voix, quand il dit "bonjour Naomi", était réduite à presque rien. Un souffle.
 
-Sara regarda son mari tenir sa fille, et tout ce qu'elle avait mis de côté — les absences, le téléphone retourné, les questions qu'elle avait refusé de poser — s'effaça comme une ardoise propre. *C'est lui. C'est le vrai lui. L'arrivée d'un enfant change tout.* Elle était naïve, elle le saurait plus tard. Mais dans ce moment, avec Naomi qui regardait son père avec les yeux écarquillés de la première heure, Sara croyait ce qu'elle voyait.
+Sara regarda son mari tenir sa fille, et tout ce qu'elle avait mis de côté s'effaça comme une ardoise propre. *L'arrivée d'un enfant change tout.* Elle était naïve. Elle le saurait plus tard. Mais dans ce moment, avec Naomi qui regardait son père avec les yeux écarquillés de la première heure, Sara croyait ce qu'elle voyait.
 
-Les premières semaines avec un bébé furent épuisantes et merveilleuses de la façon dont les choses peuvent être les deux en même temps. Marcus engagea une aide, une femme douce du nom de Mariam qui venait trois fois par semaine. Sara arrêta temporairement de travailler. Elle passait ses journées dans l'orbite de Naomi — les biberons, les bains, les sommeils qui duraient trente minutes ou trois heures selon un calendrier que personne ne comprenait.
-
-Marcus était présent — plus qu'elle ne l'avait espéré. Il rentrait raisonnablement, il donnait le bain, il tenait Naomi contre lui le soir pendant que Sara mangeait chaud pour la première fois de la journée.
+Les premières semaines furent épuisantes et merveilleuses en même temps. Marcus engagea Mariam, une aide douce qui venait trois fois par semaine. Il rentrait raisonnablement, donnait le bain, tenait Naomi contre lui le soir pendant que Sara mangeait chaud pour la première fois de la journée.
 
 *Ça va. On est une famille. Ça va vraiment.*
 
@@ -1059,21 +1133,33 @@ Ruth naquit quatorze mois plus tard.
 
 Cette fois, quelque chose avait changé.
 
-Marcus fut à la clinique, mais il avait dû partir avant la naissance — une affaire urgente à Dakar, il prit le premier vol le lendemain matin après avoir tenu Ruth vingt minutes. Il envoya des messages de Dakar. Il envoya des fleurs — un immense bouquet de lys blancs que Sara trouva beau et déplacé en même temps.
+Marcus était à la clinique, mais il repartit avant la naissance — une affaire urgente à Dakar, premier vol le lendemain matin. Il tint Ruth vingt minutes. Il envoya des messages de Dakar. Il envoya des fleurs — un bouquet de lys blancs que Sara trouva beau et déplacé en même temps.
 
 À la maison, avec Ruth au sein et Naomi qui tirait sur sa jupe pour réclamer son attention, Sara commença à voir ce qu'elle avait refusé de voir.
 
-Les absences avaient repris. Plus fréquentes. Le téléphone non seulement retourné mais maintenant protégé par un code qu'il changeait régulièrement. Des voyages d'affaires qui duraient parfois une semaine, des villes qui changeaient — Lagos, Lomé, Dakar, parfois Paris. Marcus rentrait de ces voyages avec des cadeaux pour les filles, du parfum pour Sara, et quelque chose dans les yeux qui ressemblait à la culpabilité d'un homme qui a fait exactement ce qu'on l'accuse de faire mais que personne n'a encore officiellement accusé.
+Les absences avaient repris. Plus fréquentes. Le téléphone pas seulement retourné mais protégé par un code qui changeait régulièrement. Des voyages d'affaires qui duraient parfois une semaine — Lagos, Lomé, Dakar, Paris. Marcus rentrait avec des cadeaux pour les filles, du parfum pour Sara, et quelque chose dans les yeux.
 
-Une nuit, Sara berçait Ruth dans le noir de la chambre de la petite — deux heures du matin, les filles dormaient, Marcus rentrait le lendemain. Elle regardait le visage de Ruth dans la veilleuse, ce visage si rond, si confiant, ces lèvres entrouvertes sur la promesse d'un monde qui ne lui avait pas encore menti.
+Ce quelque chose dans les yeux.
+
+Sara le regardait parfois quand il ne savait pas qu'elle regardait. Maman Aya avait dit : *quelque chose de fermé, quelque chose qu'il ne te montrera que quand il aura décidé que tu ne peux plus partir.*
+
+Était-ce ça? Ce quelque chose?
+
+Une nuit, Sara berçait Ruth dans le noir. Deux heures du matin. Les filles dormaient, Marcus était à Dakar. Elle regardait le visage de Ruth dans la veilleuse — ce visage si rond, si confiant, ces lèvres entrouvertes sur la promesse d'un monde qui ne lui avait pas encore menti.
 
 *Quelque chose ne va pas.*
 
-La pensée était simple, nette, sans hystérie.
+La pensée arriva simplement. Nette. Sans hystérie.
 
 *Quelque chose ne va vraiment pas.*
 
-Elle la laissa exister cette fois. Elle ne ferma pas le tiroir. Elle berça Ruth un peu plus longtemps que nécessaire, dans le silence de la villa de Cocody, dans le luxe froid que l'absence de Marcus remplissait chaque nuit d'un vide particulier, et elle laissa cette pensée-là prendre toute la place qu'elle méritait depuis le début.
+Cette fois, Sara ne ferma pas le tiroir.
+
+Elle laissa la pensée exister. Elle berça Ruth plus longtemps que nécessaire, dans le silence de la villa de Cocody, dans le luxe froid que l'absence de Marcus remplissait chaque nuit d'un vide particulier.
+
+Et quelque part dans cette nuit-là, tandis que Ruth respirait doucement dans ses bras, Sara prit une décision silencieuse : la prochaine fois que Marcus rentrerait de voyage, elle lui poserait la question.
+
+Elle ne savait pas encore que cette question allait changer tout.
 
 ---
 
@@ -1081,33 +1167,33 @@ Elle la laissa exister cette fois. Elle ne ferma pas le tiroir. Elle berça Ruth
 
 Le mardi soir qui changea tout ressemblait à tous les autres.
 
-Sara avait cuisiné. Du riz jollof et du poulet rôti — Marcus aimait le riz jollof, elle en faisait régulièrement, comme une offrande préventive à un dieu imprévisible dont elle ne connaissait pas encore tous les noms. Naomi avait mangé à dix-neuf heures, Ruth avait été difficile, elle avait repoussé son assiette deux fois avant d'accepter deux bouchées de riz. Maintenant elles dormaient toutes les deux, Naomi sur le dos, les bras le long du corps avec cette raideur sérieuse qu'elle avait même dans le sommeil, Ruth en boule comme un chat.
+Sara avait cuisiné. Du riz jollof et du poulet rôti — Marcus aimait ça, elle en faisait souvent, comme une offrande préventive à un dieu imprévisible. Naomi avait mangé à dix-neuf heures avec son sérieux habituel. Ruth avait repoussé son assiette deux fois avant d'accepter deux bouchées de riz. Maintenant elles dormaient.
 
-Sara avait mangé seule à vingt heures. Puis elle avait regardé la télévision sans la voir. Puis elle avait lu — ou plutôt tenu un livre ouvert. Puis elle s'était assoupie sur le canapé.
+Sara s'était assoupie sur le canapé avec un livre.
 
-Le bruit de la porte d'entrée la réveilla à vingt-trois heures douze. Elle vit l'heure sur l'horloge du salon et s'assit.
+Le bruit de la porte d'entrée la réveilla à vingt-trois heures douze.
 
-Marcus entra dans le salon. Il portait encore son costume — il avait desserré sa cravate, défait le premier bouton. Son regard était lourd, pas de ce qu'on appelle la fatigue mais de quelque chose de plus combustible. Il sentait le whisky depuis la distance où il se trouvait.
+Marcus entra dans le salon. Costume desserré, premier bouton défait. Son regard était lourd — pas de fatigue mais de quelque chose de plus combustible. Il sentait le whisky depuis la distance.
 
 "Bonsoir," dit Sara.
 
-"Bonsoir." Il posa ses clés sur la commode de l'entrée. Il alla vers la cuisine.
+"Bonsoir." Il posa ses clés, alla vers la cuisine.
 
-Sara se leva, la couverture glissant de ses jambes. "Tu veux que je te réchauffe quelque chose? Il reste du riz jollof."
+Sara se leva. "Tu veux que je te réchauffe quelque chose? Il reste du riz jollof."
 
 "Non."
 
-Il revint du réfrigérateur avec une bouteille d'eau. Il but au goulot, debout au milieu du salon.
+Il revint avec une bouteille d'eau. Il but au goulot, debout au milieu du salon.
 
-Sara hésita. La question était là depuis des semaines, des mois peut-être, posée sur le bout de sa langue comme un objet tranchant qu'elle tenait avec précaution. Elle aurait dû la remettre dans sa poche. Elle aurait dû.
+La question était là depuis des semaines, posée sur le bout de sa langue comme un objet tranchant qu'elle tenait avec précaution. Elle aurait dû la remettre dans sa poche.
 
 "Tu étais où?"
 
-Marcus reposa la bouteille sur la table basse. Il la regarda. "Pardon?"
+Marcus reposa la bouteille. Il la regarda. "Pardon?"
 
 "Je t'ai demandé où tu étais."
 
-Le silence qui suivit dura peut-être trois secondes. Dans ce silence, Sara entendit le ventilateur de la chambre des filles, le chant lointain d'un insecte par la fenêtre ouverte, son propre cœur qui battait avec une régularité étrange, comme si son corps avait compris quelque chose que son cerveau n'avait pas encore formulé.
+Le silence dura trois secondes. Dans ce silence, Sara entendit le ventilateur de la chambre des filles, un insecte par la fenêtre ouverte, son propre cœur — régulier, étrange, comme si son corps avait compris quelque chose que son cerveau n'avait pas encore formulé.
 
 "Je travaillais."
 
@@ -1115,37 +1201,33 @@ Le silence qui suivit dura peut-être trois secondes. Dans ce silence, Sara ente
 
 "Oui."
 
-"Marcus..."
+"Marcus—"
 
 La gifle arriva avant qu'elle ait fini de prononcer son nom.
 
-Elle ne la vit pas venir. Ce fut ça, le plus insensé — elle ne la vit absolument pas venir. Il n'y eut pas de geste préalable, pas de tension dans les épaules qu'elle aurait pu lire, pas de changement dans ses yeux. La main de Marcus traversa l'air et s'écrasa sur sa joue gauche avec un son plat, dur, qui résonna dans tout le salon.
+Elle ne la vit pas venir. C'est ça, le plus insensé — elle ne la vit absolument pas venir. Aucun geste préalable. Aucune tension dans les épaules. Aucun changement dans ses yeux. La main de Marcus traversa l'air et s'écrasa sur sa joue gauche avec un son plat, dur, qui résonna dans tout le salon.
 
-Sara ne tomba pas. Elle recula d'un pas contre le mur, l'épaule heurtant le bois de l'étagère, et se retrouva debout mais arrêtée, comme une poupée qu'on aurait posée là.
+Sara ne tomba pas. Elle recula d'un pas, l'épaule heurtant l'étagère, et se retrouva debout mais arrêtée — comme une poupée qu'on aurait posée là.
 
 Le monde s'était ralenti.
 
-Elle sentit d'abord la chaleur — non, la brûlure — sur toute la joue gauche, depuis la pommette jusqu'au menton. Une brûlure qui irradiait, qui gonflait déjà sous la peau. Puis le bourdonnement dans l'oreille gauche, un son de marée qui montait et descendait. Sa main alla à sa joue toute seule, réflexe animal, comme si ses doigts voulaient vérifier que la peau était encore là.
+Elle sentit d'abord la chaleur. Non — la brûlure. Sur toute la joue gauche, depuis la pommette jusqu'au menton. Une brûlure qui irradiait, qui gonflait déjà sous la peau. Puis le bourdonnement dans l'oreille gauche. Sa main alla à sa joue toute seule, réflexe animal, comme si ses doigts voulaient vérifier que la peau était encore là.
 
 Elle regarda Marcus.
 
-Il la regardait aussi. Il y avait dans son expression quelque chose qu'elle n'avait jamais vu — pas de la fureur satisfaite, pas de la cruauté, mais une sorte de... sidération. Comme si lui aussi était surpris de ce qu'il venait de faire.
+Il la regardait aussi. Dans son expression, quelque chose qu'elle n'avait jamais vu — pas de la cruauté. Pas de la satisfaction. Une sorte de... sidération. Comme s'il était lui aussi surpris de ce qu'il venait de faire.
 
-Le sol carrelé sous ses pieds nus était froid. Ce détail-là traversa Sara avec une netteté absurde — le froid du carrelage sous ses pieds nus pendant que sa joue brûlait.
-
-Elle n'avait pas encore pleuré. Elle n'avait pas encore dit un mot.
+Le carrelage sous ses pieds nus était froid. Ce détail traversa Sara avec une netteté absurde — le froid du carrelage sous ses pieds nus pendant que sa joue brûlait.
 
 *Ce n'est pas réel.*
 
-*Ce n'est pas réel. Des choses comme ça n'arrivent pas dans cette maison. Dans cette maison on a des arrangements floraux dans l'entrée et du marbre dans la salle de bain et des draps égyptiens à cinq cents fils.*
+*Ce n'est pas réel. Des choses comme ça n'arrivent pas dans cette maison. Dans cette maison on a des arrangements floraux dans l'entrée et du marbre dans la salle de bain.*
 
 *Ce n'est pas réel.*
 
-Mais le carrelage froid sous ses pieds était réel. La brûlure sur sa joue était réelle.
+Mais le carrelage froid était réel. La brûlure était réelle.
 
-Marcus bougea.
-
-Il vint vers elle et Sara recula d'un centimètre — mouvement involontaire, le corps qui précède la pensée — et quelque chose dans ce recul sembla traverser Marcus comme un courant. Il s'agenouilla devant elle. Il s'agenouilla vraiment, les deux genoux sur le carrelage froid du salon, et il prit ses mains dans les siennes.
+Marcus vint vers elle et Sara recula d'un centimètre — mouvement involontaire, le corps qui précède la pensée. Quelque chose dans ce recul sembla traverser Marcus comme un courant électrique. Il s'agenouilla devant elle. Il s'agenouilla vraiment, les deux genoux sur le carrelage froid, et il prit ses mains dans les siennes.
 
 "Sara." Sa voix était méconnaissable. Étranglée. "Sara, je suis désolé."
 
@@ -1155,69 +1237,79 @@ Elle ne dit rien.
 
 Elle le regarda. Sa joue gauche battait comme un cœur indépendant.
 
-"Je ne sais pas ce qui m'a pris. Je ne le sais vraiment pas." Il secoua la tête, les yeux humides. "C'est le stress, Sara. C'est ce projet à Lagos, les actionnaires qui me pressent, je ne dors pas... Je n'aurais jamais dû. Jamais. Tu n'as rien fait de mal."
+"Je ne sais pas ce qui m'a pris. Je ne le sais vraiment pas." Il secoua la tête, les yeux humides. "C'est le stress. Le projet à Lagos, les actionnaires qui me pressent, je ne dors plus. Tu n'as rien fait de mal."
 
-Il pleurait. Ces mêmes larmes qu'elle avait vues le soir de Naomi — les larmes qui lui avaient paru tellement vraies.
+Il pleurait. Ces mêmes larmes qu'elle avait vues le soir de Naomi.
 
-*Est-ce qu'elles l'étaient? Est-ce qu'elles l'avaient jamais été?*
+*Est-ce qu'elles l'étaient? Est-ce qu'elles avaient jamais été vraies?*
 
-"Je te jure que ça ne se reproduira plus jamais." Il pressa ses mains. "Jamais. Ce n'est pas moi, Sara. C'est la pression, je ne suis plus moi-même. Pardonne-moi."
+"Je te jure que ça ne se reproduira plus jamais. Ce n'est pas moi, Sara. Pardonne-moi."
 
-Sara regarda cet homme à genoux devant elle et sentit quelque chose d'impossible se produire en elle — quelque chose qui ressemblait à de la compassion, ou peut-être à de la résignation, ou peut-être aux deux fondus en une seule substance que son cerveau fatigué ne savait plus nommer.
+Sara regarda cet homme à genoux devant elle et sentit quelque chose d'impossible se produire en elle — quelque chose qui ressemblait à de la compassion, ou à de la résignation, ou aux deux mélangés en une substance que son cerveau fatigué ne savait plus nommer.
 
 Elle ne dit pas "je te pardonne". Elle ne dit rien.
 
 Mais elle ne le chassa pas non plus.
 
-Le lendemain, il était levé avant elle. Le café était préparé, les tartines étaient sur la table, et sur sa chaise Sara trouva une petite boîte — une chaîne en or, simple, avec un pendentif en forme d'étoile. Marcus était là, habillé pour le bureau, avec la mine de quelqu'un qui n'a pas dormi.
+---
 
-"C'est trop peu," dit-il. "Je sais. Mais je voulais que tu saches que je pense à toi."
+Le lendemain, le café était prêt, les tartines sur la table. Sur sa chaise, une petite boîte — une chaîne en or avec un pendentif en étoile. Marcus était là, habillé pour le bureau, la mine de quelqu'un qui n'a pas dormi.
 
-Sara prit le café. Elle mit la chaîne dans sa poche. Elle ne l'avait pas portée ce jour-là, et elle ne la porta jamais.
+"C'est trop peu. Je sais."
 
-Elle n'en parla à personne.
+Sara prit le café. Elle mit la chaîne dans sa poche.
 
-Pas à Amélie. Pas à sa mère. La honte était arrivée avec le matin, logée dans sa gorge comme un os — la honte bizarre et tordue de la femme frappée, qui a davantage peur du regard des autres que de la douleur elle-même. *Qu'est-ce qu'on dira? On dira que je n'ai pas su tenir ma maison. On dira que j'aurais dû voir les signes. On dira que pour un homme pareil, il faut savoir.*
+Elle ne la porta jamais.
 
-Marcus fut parfait pendant deux semaines.
+Elle n'en parla à personne. Pas à Amélie. Pas à sa mère. La honte était arrivée avec le matin, logée dans sa gorge comme un os — cette honte bizarre et tordue de la femme frappée, qui a davantage peur du regard des autres que de la douleur elle-même.
 
-Puis une nuit — un mercredi, il était rentré nerveux, elle avait dit une chose anodine sur la garderie de Ruth — le cycle recommença.
-
-Cette fois, ce fut un coup sur l'épaule, brusque, suivi d'une poussée contre la porte de la chambre. Moins violent que la gifle. Plus calculé, d'une façon qu'elle ne saurait formuler que plus tard — comme si, la première fois étant passée, il savait maintenant où était la ligne et jusqu'où il pouvait aller.
-
-Les remords revinrent. Moins intenses. Plus courts.
-
-Sara apprit à lire les signes comme on apprend à lire un texte dans une langue étrangère — d'abord laborieusement, puis avec une fluidité qui fait honte. Les épaules rentrées quand il entrait. Le timbre de sa voix dans le couloir avant même qu'il ouvre la porte. La façon dont il posait ses clés — doucement signifiait que ça allait, avec force signifiait que ça n'allait pas. Le téléphone qu'il portait à sa poche ou qu'il laissait traîner selon une logique qu'elle finit par décoder : quand il le laissait traîner, il n'avait rien à cacher parce qu'il avait réglé ce qu'il avait à régler. Quand il le gardait sur lui, c'était qu'une conversation était en cours.
-
-Elle se fit plus petite. Pas d'un coup — non, c'était un rétrécissement progressif, si lent qu'elle aurait eu du mal à le dater. Elle renonça d'abord aux sujets sensibles au dîner. Puis aux opinions en général. Elle cessa de rire fort. Elle vérifia ses tenues avant qu'il rentre — pas trop sexy, pour ne pas qu'il pense qu'elle cherchait l'attention de quelqu'un d'autre, mais pas trop négligée non plus, pour ne pas qu'il trouve matière à critique. Elle apprit le langage de la prudence. Elle le parlait couramment à présent.
-
-*C'est ça, le rétrécissement,* pensa-t-elle une nuit, en se regardant dans le miroir de la salle de bain. *Ce n'est pas la violence qui te détruit en premier. C'est ce que tu deviens pour l'éviter.*
+*Qu'est-ce qu'on dira? On dira que j'aurais dû voir les signes. On dira que pour un homme pareil, il faut savoir.*
 
 ---
 
-Le matin où tout bascula autrement, Sara était dans la cuisine avec les filles.
+Marcus fut parfait pendant deux semaines.
 
-Marcus était sous la douche. Il avait laissé son téléphone sur le comptoir — il laissait traîner, donc. Sara préparait le petit-déjeuner. Naomi était sur le tabouret haut, ses quatre ans sérieux et attentifs. Ruth, trois ans, courrait après le chat imaginaire qu'elle s'inventait régulièrement.
+Puis un mercredi, il rentra nerveux. Sara dit une chose anodine sur la garderie de Ruth.
 
-Le téléphone de Marcus vibra.
+Le cycle recommença.
 
-Sara ne regarda pas. Elle n'avait pas regardé le téléphone de son mari depuis... Elle n'avait pas regardé le téléphone de son mari.
+Cette fois, ce fut un coup sur l'épaule et une poussée contre la porte de la chambre. Moins violent que la gifle. Plus calculé — comme si, la première fois étant passée, il savait maintenant où était la ligne et jusqu'où il pouvait aller.
+
+Les remords revinrent. Moins intenses. Plus courts.
+
+Sara apprit à lire les signes comme on apprend une langue étrangère — d'abord laborieusement, puis avec une fluidité qui fait honte. Les épaules rentrées quand il entrait. Le timbre de sa voix dans le couloir avant même qu'il ouvre la porte. La façon dont il posait ses clés : doucement signifiait que ça allait, avec force signifiait que ça n'allait pas.
+
+Elle se fit plus petite. Pas d'un coup. Un rétrécissement progressif, si lent qu'elle aurait eu du mal à le dater. Elle renonça d'abord aux sujets sensibles au dîner. Puis aux opinions en général. Elle cessa de rire fort. Elle vérifia ses tenues avant qu'il rentre. Elle apprit le langage de la prudence. Elle le parlait couramment à présent.
+
+*C'est ça, le rétrécissement. Ce n'est pas la violence qui te détruit en premier. C'est ce que tu deviens pour l'éviter.*
+
+---
+
+Un matin, Sara était dans la cuisine avec les filles. Naomi sur le tabouret haut, ses quatre ans sérieux et attentifs. Ruth, trois ans, courait après son chat imaginaire.
+
+Marcus était sous la douche. Il avait laissé son téléphone sur le comptoir.
+
+Le téléphone vibra.
+
+Sara ne regarda pas.
 
 Il vibra encore.
 
-Naomi dit : "Maman, le téléphone de Papa ça sonne."
+"Maman, le téléphone de Papa ça sonne," dit Naomi.
 
 "Je sais, ma chérie."
 
-Sara retourna les tartines dans la poêle. Le téléphone vibra une troisième fois. Elle se retourna mécaniquement — pour attraper quelque chose dans le placard, pas pour regarder le téléphone — et son regard tomba sur l'écran allumé posé à trente centimètres d'elle.
+Sara retourna les tartines. Le téléphone vibra une troisième fois. Elle se retourna mécaniquement — pour attraper quelque chose dans le placard — et son regard tomba sur l'écran allumé, posé à trente centimètres d'elle.
 
-Un prénom. Sandrine. Et la première ligne du message, visible sans déverrouiller l'écran.
+Un prénom. *Sandrine.* Et la première ligne du message, visible sans déverrouiller.
 
 *Hier soir c'était magnifique. Tu me manques déjà.*
 
-Le monde ne ralentit pas cette fois. Il s'arrêta net.
+Le monde ne ralentit pas cette fois.
 
-Sara regarda l'écran. L'écran s'éteignit après quelques secondes — le verrouillage automatique. Elle regarda l'écran éteint. Dans la poêle, les tartines commençaient à sentir le brûlé. Sara les retira du feu.
+Il s'arrêta net.
+
+Sara regarda l'écran. L'écran s'éteignit après quelques secondes. Dans la poêle, les tartines commençaient à sentir le brûlé. Sara les retira du feu.
 
 "Maman, ça brûle," dit Naomi.
 
@@ -1225,91 +1317,117 @@ Sara regarda l'écran. L'écran s'éteignit après quelques secondes — le verr
 
 Sa voix était normale. C'était sidérant, la normalité de sa voix.
 
-Les semaines suivantes, elle chercha. Elle n'aurait pas su dire pourquoi — elle savait déjà, elle n'avait pas besoin de preuve, et pourtant elle chercha comme quelqu'un qui espère encore se tromper. Les reçus dans les poches des vestes avant de les envoyer au pressing — des restaurants qu'il n'avait jamais mentionnés, des nuits d'hôtel à Abidjan alors qu'il était censé être à Lagos. Un compte Instagram — il ne lui avait jamais dit qu'il avait un compte Instagram — où il suivait des femmes, et une en particulier, et leurs échanges de messages n'étaient pas cachés parce qu'il n'avait pas pensé qu'elle chercherait là. Les messages remontaient à dix-huit mois. Avant Naomi.
+---
 
-Il y en avait d'autres. Pas avec Sandrine seulement. Deux autres. Des prénoms, des photos envoyées, des "tu me rends fou" et des "hier soir c'était" et des "ma chérie" qui répétaient à d'autres femmes exactement ce qu'il avait dit à Sara.
+Les semaines suivantes, elle chercha.
 
-Sara vomit dans la salle de bain. Elle s'agenouilla sur le carrelage froid — le même carrelage froid — et vida son estomac. Puis elle resta là un moment, le dos contre la baignoire, les yeux au plafond.
+Elle n'aurait pas su dire pourquoi — elle savait déjà, elle n'avait pas besoin de preuve. Et pourtant elle chercha comme quelqu'un qui espère encore se tromper. Les reçus dans les poches des vestes avant de les envoyer au pressing — des restaurants jamais mentionnés, des nuits d'hôtel à Abidjan alors qu'il était censé être à Lagos. Un compte Instagram qu'il ne lui avait jamais dit avoir, où ses échanges avec une femme en particulier n'étaient pas cachés parce qu'il n'avait pas pensé qu'elle chercherait là.
+
+Les messages remontaient à dix-huit mois.
+
+Avant Naomi.
+
+Il y en avait d'autres. Pas Sandrine seulement. Deux autres femmes. Des prénoms, des photos, des "tu me rends fou" qui répétaient à d'autres exactement ce qu'il avait dit à Sara.
+
+Sara vomit dans la salle de bain. Elle s'agenouilla sur le carrelage froid et vida son estomac. Puis elle resta là, le dos contre la baignoire, les yeux au plafond.
 
 *Des années. Des années de ça.*
 
 *Naomi est née dans ces années-là. Ruth aussi.*
 
-Elle se leva. Elle se rinça la bouche. Elle alla dans la chambre, s'assit sur le bord du lit, et attendit.
+Elle se leva. Se rinça la bouche. Alla dans la chambre. S'assit sur le bord du lit. Attendit.
 
-Marcus rentra à vingt heures, ce soir-là, dans la bonne humeur — les épaules dégagées, les clés posées doucement. Il embrassa Naomi sur la tête, souleva Ruth qui rit. Il vint vers Sara et l'embrassa sur la tempe.
+Marcus rentra à vingt heures ce soir-là, dans la bonne humeur — les épaules dégagées, les clés posées doucement. Il embrassa Naomi sur la tête, souleva Ruth qui rit. Il vint vers Sara et l'embrassa sur la tempe.
 
 "Ça va?"
 
 Sara le regarda. "J'ai vu un message de Sandrine."
 
-Le changement fut si rapide qu'elle manqua de le suivre. En une fraction de seconde, l'homme de bonne humeur disparut. Ce qui resta était quelque chose de plus froid, de plus nu, quelque chose qu'elle n'avait vu que par éclairs jusqu'à présent.
+Le changement fut si rapide qu'elle manqua de le suivre. En une fraction de seconde, l'homme de bonne humeur disparut. Ce qui resta était quelque chose de plus froid, de plus nu.
 
 "Quoi?"
 
-"La semaine dernière. Ton téléphone sur le comptoir. Je n'ai pas cherché — je l'ai vu. 'Hier soir c'était magnifique. Tu me manques déjà.'"
+"La semaine dernière. Ton téléphone sur le comptoir. 'Hier soir c'était magnifique. Tu me manques déjà.'"
 
 Marcus la regardait.
 
-"Et j'ai cherché après," dit Sara. Sa voix ne tremblait pas. Elle ne comprenait pas pourquoi sa voix ne tremblait pas. "Il y en a d'autres. Sandrine, mais aussi d'autres. Ça dure depuis..."
+"Et j'ai cherché après. Il y en a d'autres. Ça dure depuis..."
 
-"Sara." Sa voix était basse. Calme. Dangereusement calme, d'un calme qu'elle connaissait maintenant. "Arrête."
+"Sara." Sa voix était basse. Dangereusement calme. "Arrête."
 
 "Non."
 
 "Arrête."
 
-"Marcus, depuis combien d'années..." Elle s'entendit et entendit que sa voix avait cassé sur "années". Elle recommença. "Depuis combien d'années tu me fais ça?"
+"Marcus, depuis combien d'années tu me fais ça?"
 
-Il y eut un silence. Marcus posa les mains dans ses poches. Il la regarda avec une expression qui n'était pas de la honte — c'était quelque chose de beaucoup plus simple, de beaucoup plus terrible. De l'impatience.
+Le silence. Marcus posa les mains dans ses poches. Il la regarda avec une expression qui n'était pas de la honte. C'était quelque chose de plus simple et de plus terrible.
+
+De l'impatience.
 
 "Et alors?" dit-il.
 
 Sara ouvrit la bouche. La referma.
 
-"Tu vis dans ma maison," dit Marcus, d'une voix qui aurait pu être celle de quelqu'un qui discute d'un contrat. "Tu portes mon nom. Tes filles portent mon nom. C'est ça, le deal. C'est pour ça que tu es là." Il marqua une pause. "Tu ne vas nulle part, Sara."
+"Tu vis dans ma maison. Tu portes mon nom. Tes filles portent mon nom. C'est ça, le deal. C'est pour ça que tu es là." Une pause. "Tu ne vas nulle part, Sara."
 
-Elle aurait dû se lever. Elle aurait dû appeler sa mère, appeler Amélie, appeler quelqu'un. Elle aurait dû prendre les filles et partir cette nuit-là. Elle le saurait plus tard — elle le saurait de toutes ses fibres, avec la douleur certaine de ce qu'on comprend trop tard.
+Elle aurait dû se lever. Elle aurait dû appeler sa mère, appeler Amélie, prendre les filles et partir cette nuit-là. Elle le saurait plus tard — elle le saurait de toutes ses fibres, avec la douleur certaine de ce qu'on comprend trop tard.
 
-Mais la peur était là. La peur avait la forme exacte de cette phrase — *tu ne vas nulle part* — et de la main qui l'avait déjà frappée, et de la question que Sara n'arrivait pas à finir dans sa tête : *Et si je pars. Et si je pars, qu'est-ce qu'il me fait? Et si je pars, qu'est-ce qu'il fait aux filles?*
+Mais la peur était là.
 
-Et la honte, toujours la honte — la honte qui avait poussé avec les mois comme une mauvaise herbe dans un jardin. Qui appeler? Sa mère qui lui avait dit ce monsieur a quelque chose dans les yeux? Ses amies qui avaient commenté "le plus beau couple d'Abidjan" sous les photos du mariage? Amélie qui avait dit fais attention et à qui Sara avait répondu que c'était bien?
+La peur avait la forme exacte de cette phrase — *tu ne vas nulle part* — et de la main qui l'avait déjà frappée. Et la question que Sara n'arrivait pas à finir : *Et si je pars. Qu'est-ce qu'il me fait? Qu'est-ce qu'il fait aux filles?*
 
-Le lendemain, Sara mit ses lunettes de soleil. Elle avait une marque sur la pommette droite, cette fois — il l'avait frappée après que les filles furent couchées, parce qu'elle avait eu le tort de ne pas faire comme si la conversation de la veille n'avait pas eu lieu. Elle mit ses lunettes de soleil et dit à Mariam, l'aide, qu'elle avait une migraine ophtalmique.
+Le lendemain, Sara mit ses lunettes de soleil. Elle avait une marque sur la pommette droite — il l'avait frappée après que les filles furent couchées, parce qu'elle avait eu le tort de ne pas faire comme si la conversation de la veille n'avait pas eu lieu.
 
-Mariam hocha la tête et ne dit rien. Sara vit dans ses yeux que Mariam savait. Cette chose muette entre elles deux — ce secret de femmes qui ne se dit pas — fut la chose la plus solitaire que Sara ait jamais vécue.
+Elle dit à Mariam, l'aide, qu'elle avait une migraine ophtalmique.
+
+Mariam hocha la tête et ne dit rien. Mais Sara vit dans ses yeux que Mariam savait.
+
+Ce silence muet entre elles deux — ce secret de femmes qui ne se dit pas — fut la chose la plus solitaire que Sara ait jamais vécue.
 
 ---
 
-La nuit, les filles endormies, Marcus en voyage ou simplement absent, Sara allait parfois dans la salle de bain et se regardait dans le miroir.
+La nuit, les filles endormies, Sara allait parfois dans la salle de bain et se regardait dans le miroir.
 
-Pas pour évaluer les marques. Pour chercher quelque chose qu'elle perdait morceau par morceau, qu'elle ne savait plus nommer mais dont l'absence lui faisait un creux dans la poitrine.
+Pas pour évaluer les marques. Pour chercher quelque chose qu'elle perdait morceau par morceau.
 
 *Qu'est-ce qu'il reste de Sara Mensah?*
 
-La question venait toujours comme ça — avec le prénom de jeune fille, pas avec le nom de son mari. Sara Mensah. La fille de Yopougon. La fille du taxi collectif bordeaux, du carnet bordeaux qu'Elias lui avait donné un soir devant le lycée, du trajet du matin vers Plateau avec l'énergie de quelqu'un qui construit quelque chose.
+Toujours avec le prénom de jeune fille. Pas le nom de son mari. Sara Mensah. La fille de Yopougon. La fille du taxi collectif bordeaux. La fille du carnet bordeaux qu'Elias lui avait donné un soir devant le lycée.
 
-*Qu'est-ce qu'il reste d'elle?*
+*Elias.*
 
-Les filles qui dormaient à côté.
+Le nom lui traversa l'esprit comme un caillou dans une eau calme — discret, mais les cercles s'élargissent longtemps après.
 
-Sara allait les regarder. D'abord Naomi — Naomi sur le dos, grave même dans le sommeil, avec ce front légèrement plissé d'une petite fille qui pense à des choses trop lourdes pour son âge. Naomi qui avait vu des choses qu'elle ne devrait pas avoir vues. Naomi qui n'en parlait pas et c'était ça, le pire — le silence de Naomi, sa façon d'absorber le monde avec ses grands yeux sombres sans jamais rien dire, comme quelqu'un qui comprend que parler ne sert à rien.
+Elle l'avait oublié, presque. Ces six, sept années avaient recouvert beaucoup de choses. Elias Kouamé qui dessinait dans ses carnets. Elias qui était là le jour où elle avait raté son examen de géographie et il lui avait dit que ce n'était pas grave avec une conviction tellement sincère qu'elle avait fini par le croire. Elias qui ne disait jamais beaucoup mais dont chaque mot avait du poids.
 
-Puis Ruth — Ruth en boule, le pouce pas très loin de sa bouche même à cinq ans, Ruth qui riait pour un rien, qui construisait des châteaux avec les coussins du salon, qui appelait le chat imaginaire Fifou. Ruth dont l'innocence était encore là, intacte — mais pour combien de temps encore, dans cette maison?
+*Où est-il maintenant?*
+
+Elle ne savait pas. Elle avait perdu le fil. La vie l'avait emportée dans une autre direction.
+
+Sara regardait ses filles dormir. D'abord Naomi — front légèrement plissé, grave même dans le sommeil. Naomi qui avait vu des choses. Naomi dont le silence était la chose la plus lourde à porter.
+
+Puis Ruth — en boule, le pouce pas très loin de sa bouche même à quatre ans, Ruth qui riait pour un rien. Ruth dont l'innocence était encore là — mais pour combien de temps, dans cette maison?
 
 *Si je pars, qu'est-ce qui leur arrive?*
 
 *Si je reste, qu'est-ce qui m'arrive?*
 
-Les deux questions tournaient. Sara regardait ses filles dormir et ces deux questions tournaient comme le ventilateur au plafond, sans s'arrêter, sans réponse.
+Les deux questions tournaient sans s'arrêter, sans réponse.
 
 Ce sont elles qui l'empêchaient de partir.
 
 Ce sont elles qui l'empêchaient de rester.
 
-Et Sara, entre ces deux impossibilités, continuait à tenir. Non pas avec courage — elle refusait ce mot, le courage est une chose propre et franche, ce qu'elle faisait n'était pas propre ni franc — mais avec la ténacité grise et épuisée de quelqu'un qui n'a pas encore trouvé la porte de sortie.
+Et Sara, entre ces deux impossibilités, continuait à tenir — non pas avec courage, mais avec la ténacité grise et épuisée de quelqu'un qui n'a pas encore trouvé la porte de sortie.
 
 Pas encore.
+
+Mais quelque chose allait changer. Quelque chose devait changer.
+
+Et cette nuit-là, pour la première fois depuis des mois, Sara Mensah — pas Kouassi, Mensah — ressentit quelque chose de minuscule mais de distinct au fond de sa poitrine.
+
+De la colère.
 
 ---
 
@@ -1317,19 +1435,25 @@ Pas encore.
 
 La dernière violence avait eu lieu le vendredi soir.
 
-Ce n'était pas la pire. Sara avait appris, avec l'horreur tranquille de ceux qui s'y connaissent, à mesurer les violences sur une échelle intérieure. Celle du vendredi était dans la moitié haute — assez forte pour laisser une marque sous l'œil droit, pas assez pour nécessiter les urgences. Elle avait appliqué de la glace, attendu que Marcus s'endorme, et passé la nuit à regarder le plafond.
+Ce n'était pas la pire. Sara avait appris, avec l'horreur tranquille de ceux qui s'y connaissent, à mesurer les violences sur une échelle intérieure. Celle du vendredi : assez forte pour laisser une marque sous l'œil droit, pas assez pour les urgences. Elle avait appliqué de la glace, attendu que Marcus s'endorme, passé la nuit à regarder le plafond.
 
-Ce qui dévastait Sara ce matin-là, ce n'était pas sa propre marque.
+Ce qui la dévastait ce matin-là, ce n'était pas sa propre marque.
 
 C'était Ruth.
 
-Ruth l'avait vue. Pas la gifle elle-même — elle avait cinq ans, elle aurait dû dormir depuis une heure. Mais elle s'était levée, peut-être pour aller aux toilettes, peut-être pour quelque chose qu'elle n'aurait pas su nommer. Elle s'était retrouvée dans le couloir, la porte de la chambre entrouverte, et elle avait vu — Sara en reculant contre le mur, Marcus debout, la main qui venait de frapper.
+Ruth l'avait vue.
 
-Sara l'avait vue une seconde plus tard. Avait vu les yeux de sa petite fille de cinq ans.
+Pas la gifle elle-même — elle avait cinq ans, elle aurait dû dormir depuis une heure. Mais elle s'était levée. Elle s'était retrouvée dans le couloir, la porte de la chambre entrouverte, et elle avait vu — Sara en reculant contre le mur, Marcus debout, la main qui venait de frapper.
 
-Ruth n'avait pas crié. N'avait pas appelé. Elle avait regardé sa mère — ce regard d'une seconde, deux secondes, trois — et puis elle était retournée dans sa chambre. Elle avait tiré sa couverture sur elle. Seule.
+Sara l'avait vue une seconde plus tard. Elle avait vu les yeux de sa petite fille de cinq ans.
 
-Cette image — Ruth qui tirait sa couverture sur elle, seule, dans le noir, après avoir vu ça — c'est cette image qui avait brisé quelque chose en Sara que rien d'autre n'avait pu briser. Pas les coups. Pas les infidélités. Pas la phrase *tu ne vas nulle part*. L'image de Ruth qui se rendormait seule parce qu'elle savait déjà, à cinq ans, que certaines choses n'appellent personne.
+Ruth n'avait pas crié. N'avait pas appelé. Elle avait regardé sa mère — ce regard d'une seconde, deux, trois — et puis elle était retournée dans sa chambre. Elle avait tiré sa couverture sur elle.
+
+Seule.
+
+Cette image — Ruth qui tirait sa couverture sur elle, seule, dans le noir, après avoir vu ça — c'est cette image qui avait brisé quelque chose en Sara que rien d'autre n'avait pu briser. Pas les coups. Pas les infidélités. Pas la phrase *tu ne vas nulle part*.
+
+L'image de Ruth qui se rendormait seule parce qu'elle savait déjà, à cinq ans, que certaines choses n'appellent personne.
 
 *Ma fille est en train d'apprendre que c'est normal.*
 
@@ -1337,11 +1461,15 @@ Cette image — Ruth qui tirait sa couverture sur elle, seule, dans le noir, apr
 
 ---
 
-Le samedi matin, Marcus était parti en voyage. Un week-end à Lagos — une réunion, avait-il dit, peut-être du golf aussi, il rentrerait dimanche soir. Il avait embrassé les filles avant de partir — les joues, vite, distrait — et Sara avait tenu les filles par les épaules dans le vestibule pendant qu'il chargeait son sac dans la voiture.
+Le samedi matin, Marcus était parti en voyage. Lagos — une réunion, peut-être du golf, il rentrerait dimanche soir. Il avait embrassé les filles avant de partir, vite, distrait, et Sara avait tenu les filles par les épaules dans le vestibule pendant qu'il chargeait son sac dans la voiture.
 
-À dix heures, la belle-mère de Sara — Madame Kouassi mère, une femme sèche et vigilante qui n'avait jamais vraiment accepté Sara mais gardait les formes — était venue chercher Naomi et Ruth pour le week-end. Sara avait préparé leurs sacs la veille, leurs pyjamas, les médicaments de Ruth en cas de rhume, les doudous respectifs. Naomi avait serré la main de Sara longuement avant de partir — Naomi, sept ans, qui serrait la main de sa mère avec la force d'une petite fille qui a peur de lâcher.
+À dix heures, la belle-mère — Madame Kouassi mère, une femme sèche et vigilante qui n'avait jamais vraiment accepté Sara mais gardait les formes — était venue chercher Naomi et Ruth pour le week-end. Sara avait préparé leurs sacs la veille. Leurs pyjamas. Les médicaments de Ruth en cas de rhume. Les doudous respectifs.
 
-"Je reviens dimanche, mon bébé," dit Sara.
+Naomi avait serré la main de Sara longuement avant de partir.
+
+Naomi, sept ans, qui serrait la main de sa mère avec la force d'une petite fille qui a peur de lâcher.
+
+"Je reviens dimanche, mon bébé."
 
 Naomi hocha la tête. Elle ne dit rien. Elle ne disait jamais rien.
 
@@ -1353,29 +1481,31 @@ La villa fut silencieuse.
 
 Sara marcha d'une pièce à l'autre.
 
-Elle ne savait pas ce qu'elle cherchait. Ou peut-être qu'elle ne cherchait rien — peut-être qu'elle marchait simplement pour occuper le silence, pour ne pas laisser le silence l'occuper en premier. Le salon. La cuisine. Le couloir. La chambre des filles — elle s'y arrêta un moment, debout dans l'encadrement de la porte, à regarder les deux lits défaits, les peluches laissées en désordre, la poupée de Ruth abandonnée sur le tapis. Le couloir encore. Le bureau de Marcus, qu'elle ne pénétra pas.
+Elle ne cherchait rien. Elle marchait simplement pour occuper le silence, pour ne pas le laisser l'occuper en premier. Le salon. La cuisine. Le couloir. La chambre des filles — elle s'y arrêta, debout dans l'encadrement de la porte, à regarder les deux lits défaits, les peluches laissées en désordre, la poupée de Ruth abandonnée sur le tapis.
 
-La villa était grande. Elle avait toujours été trop grande. Dans les premiers mois du mariage, Sara avait pensé qu'ils grandiraient dedans — que les pièces se rempliraient de vie, de bruit, d'enfants qui courent. Maintenant elle comprenait que ce n'était pas de la place pour une famille qu'avait voulue Marcus. C'était un décor. Un décor pour une certaine image de lui-même, et Sara y avait été l'un des accessoires.
+La villa était grande. Trop grande. Elle avait toujours été trop grande. Dans les premiers mois, Sara avait pensé qu'ils grandiraient dedans, que les pièces se rempliraient de vie. Maintenant elle comprenait que ce n'était pas de la place pour une famille qu'avait voulue Marcus. C'était un décor. Un décor pour une certaine image de lui-même. Et Sara y avait été l'un des accessoires.
 
-Le luxe froid l'entourait. Le carrelage poli, les rideaux lourds, les meubles que quelqu'un avait choisis pour leur coût et non pour leur chaleur. Sara avait essayé, au début, de rendre la maison vivante — elle avait apporté des plantes, un tapis en raphia pour le salon, des photos des filles dans des cadres simples en bois. Marcus n'avait pas dit non. Il n'avait rien dit du tout. Les plantes avaient fini par mourir, parce que personne ne les arrosait et que Sara n'avait plus l'énergie d'apporter de la vie là où quelque chose d'essentiel mourait.
+Le luxe froid l'entourait. Sara avait essayé, au début, de rendre la maison vivante — des plantes, un tapis en raphia, des photos des filles dans des cadres en bois. Les plantes avaient fini par mourir. Personne ne les arrosait. Sara n'avait plus l'énergie d'apporter de la vie là où quelque chose d'essentiel mourait.
 
-Elle marcha encore. Elle finit dans la grande salle de bain attenante à leur chambre.
+Elle finit dans la grande salle de bain attenante à leur chambre.
 
 Le miroir.
 
-Elle n'avait pas regardé le miroir ce matin-là. Elle s'était habillée avec le regard fuyant de quelqu'un qui évite un interlocuteur dont la réponse est connue d'avance. Maintenant elle se tenait devant lui, dans la lumière de fin de matinée qui entrait par la fenêtre à volets mi-clos.
+Elle ne l'avait pas regardé ce matin-là. Elle s'était habillée avec le regard fuyant de quelqu'un qui évite un interlocuteur dont la réponse est connue d'avance. Maintenant elle se tenait devant lui, dans la lumière de fin de matinée qui entrait par la fenêtre à volets mi-clos.
 
-La marque sous l'œil droit était passée du violet profond d'hier au jaune verdâtre du lendemain. Le genre de couleur qui dit *ça cicatrise* sans dire *ça va bien*. Sa joue était légèrement gonflée encore. Ses cheveux étaient défaits, pas peignés — elle avait oublié.
+La marque sous l'œil droit était passée du violet profond au jaune verdâtre du lendemain. Le genre de couleur qui dit *ça cicatrise* sans dire *ça va bien*. Sa joue légèrement gonflée. Ses cheveux défaits, pas peignés.
 
-Mais ce n'était pas les marques qu'elle regardait. Elle regardait les yeux.
+Mais ce n'était pas les marques qu'elle regardait.
+
+Elle regardait les yeux.
 
 *Qu'est-ce qu'il reste de Sara Mensah?*
 
-Les yeux dans le miroir la regardaient. Des yeux fatigués, profonds, avec dedans quelque chose d'éteint qu'elle ne savait plus dater — depuis quand cette lumière-là était éteinte? Depuis le premier coup? Depuis la première infidélité? Depuis la phrase *tu ne vas nulle part*? Depuis Ruth dans le couloir avec sa couverture?
+Des yeux fatigués. Avec dedans quelque chose d'éteint qu'elle ne savait plus dater. Depuis quand? Depuis le premier coup? Depuis la première infidélité? Depuis *tu ne vas nulle part*? Depuis Ruth dans le couloir avec sa couverture?
 
 *Rien,* répondit quelque chose en elle. *Il ne reste rien.*
 
-Et c'était dit sans hystérie, sans larmes, avec cette froide netteté des constats faits trop tard. Sara Mensah — la fille de Yopougon, la fille du taxi collectif, la fille du carnet bordeaux — avait disparu quelque part dans les six années de ce mariage, et ce qui restait était Sara Kouassi, une femme dans un miroir avec une marque sous l'œil et les yeux éteints.
+Dit sans hystérie. Sans larmes. Avec la froide netteté des constats faits trop tard. Sara Mensah — la fille de Yopougon, la fille du carnet bordeaux — avait disparu quelque part dans ces six années. Ce qui restait était Sara Kouassi. Une femme dans un miroir avec une marque sous l'œil et les yeux éteints.
 
 Elle quitta la salle de bain.
 
@@ -1383,31 +1513,35 @@ Elle quitta la salle de bain.
 
 Le tiroir de la table de nuit.
 
-Elle ne sut pas pourquoi elle y alla. Peut-être parce que ses pieds la portèrent vers la chambre et qu'elle s'assit sur le bord du lit et que le tiroir était là, à vingt centimètres de sa main. Elle l'ouvrit.
+Elle ne sut pas pourquoi elle y alla. Peut-être parce que ses pieds la portèrent vers la chambre et que le tiroir était là, à vingt centimètres de sa main. Elle l'ouvrit.
 
-Le flacon de somnifères était là. Prescrit par le médecin il y a quatre mois, pour les insomnies qui avaient commencé à cette période — les nuits où elle ne dormait pas, où elle tournait dans le lit, où les pensées revenaient en boucle jusqu'à l'aube. Le médecin avait dit : en cas de besoin, pas plus de deux. Sara n'en avait pris que trois fois depuis quatre mois. Le flacon était presque plein.
+Le flacon de somnifères. Prescrit quatre mois plus tôt pour les insomnies. Le médecin avait dit : en cas de besoin, pas plus de deux. Sara n'en avait pris que trois fois depuis quatre mois. Le flacon était presque plein.
 
-Elle le sortit du tiroir. Elle le posa sur sa paume.
+Elle le sortit. Elle le posa sur sa paume.
 
-Ce n'était pas une décision. Ce n'était pas encore une décision. C'était juste un objet dans une paume, et des yeux qui le regardaient, et une pensée qui se formait lentement, avec la précision terrible des pensées qui naissent dans les endroits les plus silencieux :
+Ce n'était pas encore une décision. C'était juste un objet dans une paume. Et des yeux qui le regardaient. Et une pensée qui se formait lentement, avec la précision terrible des pensées qui naissent dans les endroits les plus silencieux :
 
 *Et si je m'arrêtais?*
 
-Pas comme une question dramatique. Pas avec les mots d'un film ou d'un roman — non. Avec la simplicité presque administrative d'une femme épuisée qui cherche comment mettre fin à quelque chose d'insupportable.
+Pas comme une question dramatique. Pas avec les mots d'un film. Avec la simplicité presque administrative d'une femme épuisée qui cherche comment mettre fin à quelque chose d'insupportable.
 
-*Et si je m'arrêtais. Si je prenais tout le flacon. Si je m'allongeais. Si je ne me réveillais pas.*
+*Et si je prenais tout le flacon. Si je m'allongeais. Si je ne me réveillais pas.*
 
-Elle regarda le flacon longtemps. La lumière de la fenêtre avait bougé — il devait être midi maintenant, peut-être plus. Elle ne savait pas. Le temps n'avait plus la même texture dans cette maison depuis longtemps.
+Elle regarda le flacon longtemps. La lumière avait bougé. Il devait être midi.
 
 *Les filles.*
 
-Les filles revenaient dimanche. Naomi et Ruth. Naomi qui serrerait la main de sa mère dans le vestibule. Ruth qui courrait vers elle en criant "Maman!" avec l'enthousiasme intact de ses cinq ans.
+Les filles revenaient dimanche. Naomi et Ruth. Naomi qui serrerait la main de sa mère dans le vestibule. Ruth qui courrait en criant "Maman!" avec l'enthousiasme intact de ses cinq ans.
 
-Sara remit le flacon dans sa paume. Elle se leva. Elle alla au salon.
+Sara garda le flacon dans sa paume.
 
-Elle prit une feuille dans le tiroir du bureau — pas le bureau de Marcus, le petit secrétaire dans l'angle du salon, celui qui lui appartenait à elle, avec ses stylos et ses carnets. Elle s'assit à la table. Elle prit un stylo.
+Elle se leva.
 
-Elle resta comme ça un moment — la feuille blanche devant elle, le stylo dans la main, sans écrire. Puis elle commença.
+Elle alla au salon.
+
+Elle prit une feuille dans le petit secrétaire dans l'angle du salon — celui qui lui appartenait à elle, avec ses stylos et ses carnets. Elle s'assit à la table. Elle prit un stylo.
+
+Elle resta comme ça un moment. La feuille blanche devant elle. Sans écrire. Puis elle commença.
 
 ---
 
@@ -1415,31 +1549,27 @@ Elle resta comme ça un moment — la feuille blanche devant elle, le stylo dans
 
 *Je ne sais pas par où commencer. Avec les mots, j'ai toujours su commencer. J'ai fait des études, j'ai travaillé dans une agence, j'ai écrit des textes pour des gens qui ne savaient pas dire ce qu'ils voulaient dire. Mais là, je ne sais pas. Alors je vais commencer par le commencement, c'est-à-dire par vous.*
 
-*Naomi. Tu as sept ans. Tu es grave comme une petite fille qui a vu trop tôt les choses sérieuses. Je t'en demande pardon. Je t'en demande pardon comme on demande pardon d'une faute qu'on n'a pas commise tout seul mais dont on est quand même responsable — parce que j'aurais dû vous protéger de ce que vous avez vu. J'aurais dû partir plus tôt. J'aurais dû avoir plus de courage que de peur. Je n'ai pas su. Je ne sais pas si les mères qui n'ont pas su méritent qu'on leur pardonne. Je te demande quand même.*
+*Naomi. Tu as sept ans. Tu es grave comme une petite fille qui a vu trop tôt les choses sérieuses. Je t'en demande pardon. J'aurais dû vous protéger de ce que vous avez vu. J'aurais dû partir plus tôt. J'aurais dû avoir plus de courage que de peur.*
 
 *Je me souviens du soir où tu es née. Ton père pleurait. Je croyais que ça voulait dire que tout irait bien. Je croyais que les larmes des pères sur les nouveau-nés étaient une promesse. Je me trompais. Les larmes ne sont pas des promesses.*
 
-*Naomi, tu vas devenir quelqu'un de formidable. Je le sais parce que tu portes en toi quelque chose que personne ne t'a appris — une façon de regarder le monde qui est à la fois attentive et prudente. Tu ne lâches rien facilement. Tu pèses les choses. C'est un cadeau, même si ça peut faire mal de peser les choses. Garde ça.*
+*Il y a une chose que je veux que tu retiennes — une seule. Un homme qui te frappe une fois te frappera encore. Je sais que tu es petite et que ce n'est pas le moment. Mais garde ça quelque part. La première fois n'est jamais la dernière. Pars à la première fois. Pars même si tu l'aimes. Pars surtout si tu l'aimes.*
 
-*Il y a une chose que je veux que tu retiennes — une seule, si tu dois n'en garder qu'une. Un homme qui te frappe une fois te frappera encore. Ce n'est pas de la malveillance que je dis ça — ce n'est pas pour te dresser contre les hommes. C'est parce que j'aurais voulu que quelqu'un me le dise avant, clairement, sans métaphore. La première fois n'est jamais la dernière. Pars à la première fois. Pars même si tu l'aimes. Pars surtout si tu l'aimes. L'amour n'est pas une bonne raison de rester là où on te fait du mal.*
+*Ruth. Mon Ruth. Tu as cinq ans et tu ris pour tout. Tu appelles ton chat imaginaire Fifou. Tu construites des châteaux avec les coussins du canapé. Tu chantes des chansons en inventant les paroles quand tu ne les connais pas. Tu es la chose la plus lumineuse que j'aie jamais vue de près. Tu es une flamme. Garde ta flamme. Le monde va essayer de te la prendre de mille façons — par la peur, par la honte, par les gens qui te diront que tu prends trop de place. Ne les écoute pas. Prends la place. Ris fort. Veux tout.*
 
-*Il y a autre chose. Ton père est un homme avec ses propres blessures que je n'ai jamais su voir ni comprendre, et ce n'est pas une excuse, mais c'est vrai. Ne le hais pas. Pas pour moi — pour toi. La haine coûte trop cher à ceux qui la portent. Mais n'excuse pas non plus ce qui ne s'excuse pas.*
+*Il y a une nuit — tu étais dans le couloir et tu as vu quelque chose. Et tu es retournée dans ta chambre toute seule. Tu as tiré ta couverture sur toi. Je n'étais pas là pour te tenir. Je n'ai pas pu. Cette nuit-là, je t'ai manqué d'une façon que je n'arrive pas à me pardonner.*
 
-*Ruth. Mon Ruth. Tu as cinq ans et tu ris pour tout. Tu appelles ton chat imaginaire Fifou et tu construis des châteaux avec les coussins du canapé et tu chantes des chansons en inventant les paroles quand tu ne les connais pas. Tu es la chose la plus lumineuse que j'aie jamais vue de près. Tu es une flamme, Ruth. Garde ta flamme. Le monde va essayer de te la prendre de mille façons différentes — par la peur, par la honte, par les gens qui te diront que tu prends trop de place ou que tu ris trop fort ou que tu veux trop. Ne les écoute pas. Prends la place. Ris fort. Veux tout.*
+*Ce que tu as vu cette nuit-là — ce n'est pas ce que l'amour ressemble. L'amour ne ressemble pas à ça. L'amour ne fait pas peur. L'amour ne te demande pas de tirer ta couverture sur toi toute seule dans le noir.*
 
-*Il y a une nuit — je ne te le dirai pas parce que tu étais trop petite pour t'en souvenir et je voudrais que tu restes trop petite pour t'en souvenir — tu es sortie dans le couloir et tu as vu quelque chose que tu n'aurais pas dû voir. Et tu es retournée dans ta chambre toute seule. Tu as tiré ta couverture sur toi. Je n'étais pas là pour te tenir. Je n'ai pas pu. Cette nuit-là, je t'ai manqué d'une façon que je n'arrive pas à me pardonner.*
+*Je vous ai regardées dormir des centaines de fois. Naomi avec son front légèrement plissé, comme si même dans le sommeil tu réfléchissais. Ruth en boule, le pouce tout près de la bouche. Ces images-là, je les ai gardées comme de l'argent pour les temps difficiles.*
 
-*Ruth, écoute-moi. Ce que tu as vu cette nuit-là et peut-être d'autres nuits — ce n'est pas ce que l'amour ressemble. L'amour ne ressemble pas à ça. Je sais que tu es petite et que tu ne comprends peut-être pas encore ce que ça veut dire. Mais garde quelque part dans ta mémoire que ta mère t'a dit : l'amour ne fait pas peur. L'amour n'oblige pas à se faire petite. L'amour ne te demande pas de tirer ta couverture sur toi toute seule dans le noir.*
+*Elles ne suffisent plus. Je suis tellement fatiguée, mes amours. La fatigue de quelqu'un qui n'a plus de réserves. La fatigue de quelqu'un qui a tout donné et n'a pas su où et à qui le reprendre.*
 
-*Je vous ai regardées dormir des centaines de fois. Dans vos chambres, la nuit — je venais m'asseoir dans l'obscurité et je regardais vos visages. C'était la seule chose qui était vraie dans cette maison. Vos visages endormis. Naomi avec son front légèrement plissé, comme si même dans le sommeil tu réfléchissais. Ruth en boule, le pouce tout près de la bouche. Ces images-là, je les ai gardées comme on garde de l'argent pour les temps difficiles — je les sortais les nuits où j'en avais besoin, et elles m'ont suffi longtemps.*
-
-*Elles ne suffisent plus. Je suis tellement fatiguée, mes amours. Je suis fatiguée d'une façon que je ne sais pas expliquer — pas d'une fatigue qui se soigne en dormant. La fatigue de quelqu'un qui n'a plus de réserves. La fatigue de quelqu'un qui a tout donné et n'a pas su où et à qui le reprendre.*
-
-*Je voudrais que vous sachiez que je vous ai aimées avec tout ce que j'avais. Même quand je n'avais presque rien. Même les nuits où j'ai pleuré sur le canapé en attendant que votre père rentre. Même les matins où je me regardais dans le miroir et je ne savais plus qui j'étais. Il y avait toujours, dans le fond de ce que j'avais, quelque chose qui portait vos prénoms.*
+*Je voudrais que vous sachiez que je vous ai aimées avec tout ce que j'avais. Même quand je n'avais presque rien. Même les nuits où j'ai pleuré sur le canapé. Il y avait toujours, dans le fond de ce que j'avais, quelque chose qui portait vos prénoms.*
 
 *Naomi. Ruth.*
 
-*Je vous aime. Je vous ai aimées dès le premier instant — cette seconde où on vous a posées dans mes bras, rouges et froissées et furieuses d'être là, et j'ai compris que rien ne serait jamais plus important que vous. Cette seconde, elle est vraie. Elle est la chose la plus vraie de ma vie.*
+*Je vous aime. Je vous ai aimées dès le premier instant — cette seconde où on vous a posées dans mes bras, rouges et froissées et furieuses d'être là. Cette seconde est la chose la plus vraie de ma vie.*
 
 *Pardonnez-moi de n'avoir pas su vous donner mieux que ça.*
 
@@ -1451,27 +1581,25 @@ Elle resta comme ça un moment — la feuille blanche devant elle, le stylo dans
 
 Le téléphone sonna.
 
-Sara leva les yeux de la feuille. Elle ne savait pas combien de temps elle avait écrit — une heure, peut-être. Ses doigts étaient crispés autour du stylo. Les larmes avaient séché sur ses joues sans qu'elle s'en aperçoive.
+Sara leva les yeux de la feuille. Ses doigts étaient crispés autour du stylo. Elle ne savait pas combien de temps elle avait écrit. Les larmes avaient séché sur ses joues sans qu'elle s'en aperçoive.
 
-Le téléphone sonnait. Elle regarda l'écran.
+Le téléphone sonnait. Numéro inconnu.
 
-Numéro inconnu.
-
-Elle laissa sonner. Le téléphone s'arrêta. Recommença.
+Elle laissa sonner. Il s'arrêta. Recommença.
 
 Elle décrocha.
 
 "Allô?"
 
-"Sara? Oui! Bonjour, excuse-moi, c'est Madame Assi, ta voisine de droite." La voix était chaleureuse, ronde, avec l'accent du Centre-Ouest, la voix d'une femme habituée à parler fort et à rire souvent. "Je t'appelle sur le fixe — non, ton mobile en fait, j'ai eu le numéro par Monsieur le gardien, j'espère que c'est pas mal?"
+"Sara? Oui! Bonjour, excuse-moi, c'est Madame Assi, ta voisine de droite." La voix était chaleureuse, ronde, avec l'accent du Centre-Ouest. La voix d'une femme habituée à parler fort et à rire souvent. "J'espère que c'est pas mal de t'appeler comme ça, c'est Monsieur le gardien qui m'a donné ton numéro."
 
-Sara mit une seconde à revenir. "Non, c'est... c'est bien."
+Sara mit une seconde à revenir à elle. "Non... c'est bien."
 
 "Voilà, c'est bête ce que je vais te demander, mais ma bonne est sortie et j'ai plus de sel. Tu as du sel? Juste un peu, le temps que j'en rachète demain matin?"
 
 Le sel.
 
-Sara regarda la feuille devant elle. Les médicaments posés à côté. La table du salon, dans la grande villa de Cocody, le samedi après-midi.
+Sara regarda la feuille devant elle. Le flacon posé à côté. La table du salon, dans la grande villa de Cocody, ce samedi après-midi.
 
 Du sel.
 
@@ -1479,17 +1607,25 @@ Du sel.
 
 "Ah, tu me sauves!" Madame Assi rit, un rire de cascade. "C'est que j'ai mon poulet déjà dans la casserole, tu vois comment ça fait..."
 
-"Oui, oui." Sara se levait déjà, sans réfléchir, par automatisme, vers la cuisine. "Viens, je t'en donne."
+"Oui, oui." Sara se levait déjà, par automatisme. "Viens, je t'en donne."
 
-"Mais tu es sûre que ça ne te dérange pas? Je vois la voiture de Marcus n'est pas là, je voulais pas te..."
+"Mais tu es sûre? Je vois que la voiture de Marcus n'est pas là, je voulais pas te..."
 
 "Ça ne me dérange pas. Viens."
 
-La conversation dura cinq minutes. Madame Assi passa, prit le sel — Sara lui donna la moitié d'un paquet — et raconta en même temps l'histoire du poulet, et celle de sa bonne qui était "pas fiable mais on fait avec", et demanda si les petites allaient bien, et dit qu'elle avait vu Naomi la semaine dernière dans le jardin, "cette petite elle est tellement sage, on entend pas un bruit". Elle avait ce don naturel de certaines personnes de remplir l'espace avec de la chaleur humaine sans même y penser, comme quelqu'un qui chauffe une pièce simplement par sa présence.
+---
 
-Sara répondit. Par automatisme d'abord, puis avec quelque chose qui ressemblait à de la présence. La voix de Madame Assi était réelle. La question sur les filles était réelle. Le sel dans le sachet de papier était réel.
+La conversation dura cinq minutes.
 
-Quand Madame Assi repartit — "merci ma chérie, tu me sauves vraiment, je t'apporte un bout de poulet ce soir!" — Sara referma la porte et s'y adossa.
+Madame Assi passa, prit le sel — Sara lui donna la moitié d'un paquet — et raconta en même temps l'histoire du poulet et de sa bonne "pas fiable mais on fait avec", et demanda si les petites allaient bien, et dit qu'elle avait vu Naomi la semaine dernière dans le jardin.
+
+"Cette petite, elle est tellement sage. On entend pas un bruit."
+
+Sara répondit. D'abord par automatisme. Puis avec quelque chose qui ressemblait à de la présence. La voix de Madame Assi était réelle. La question sur les filles était réelle. Le sel dans le sachet de papier était réel.
+
+Madame Assi avait ce don naturel de certaines personnes de remplir l'espace avec de la chaleur humaine sans y penser — comme quelqu'un qui chauffe une pièce simplement par sa présence.
+
+Quand elle repartit — "merci ma chérie, tu me sauves vraiment, je t'apporte un bout de poulet ce soir!" — Sara referma la porte et s'y adossa.
 
 Elle resta contre la porte un moment.
 
@@ -1497,13 +1633,17 @@ Puis elle alla au salon.
 
 Elle regarda la lettre. Elle regarda le flacon de somnifères posé à côté.
 
-Quelque chose avait changé dans l'air de la pièce. Elle ne savait pas comment le nommer. Pas la résolution — la résolution n'était pas revenue. Mais quelque chose de l'ordre de la fissure dans quelque chose de trop serré, une imperceptible détente dans le mécanisme.
+Quelque chose avait changé dans l'air de la pièce. Elle ne savait pas comment le nommer. Pas la résolution — la résolution n'était pas revenue. Mais quelque chose d'un ordre différent. Une imperceptible détente dans le mécanisme. Une fissure dans quelque chose de trop serré.
 
-Sara prit le flacon. Elle alla dans la chambre. Elle le remit dans le tiroir de la table de nuit.
+Sara prit le flacon.
 
-Elle revint au salon. Elle prit la lettre. Elle la lut une fois, dans le silence de la villa vide, les lèvres qui bougeaient légèrement sur les mots. Puis elle la plia en quatre. Elle la glissa dans la poche de son pagne.
+Elle alla dans la chambre. Elle le remit dans le tiroir de la table de nuit.
 
-Elle s'assit sur le canapé. Elle ne fit rien pendant un long moment. La lumière du salon changea d'angle — l'après-midi avançait. À un moment, des larmes vinrent, mais différemment de ce qu'elle aurait attendu — pas les larmes convulsives du désespoir, plutôt quelque chose de plus lent, de plus profond, comme une nappe d'eau souterraine qui trouve enfin une fissure. Elle pleurait et elle laissait pleurer, sans essayer d'arrêter.
+Puis elle revint au salon. Elle prit la lettre. Elle la lut une fois, à voix basse, les lèvres qui bougeaient légèrement sur les mots. Puis elle la plia en quatre.
+
+Elle la glissa dans la poche de son pagne.
+
+Elle s'assit sur le canapé. Elle ne fit rien pendant un long moment. La lumière changea d'angle — l'après-midi avançait. Des larmes vinrent. Pas les larmes convulsives du désespoir — quelque chose de plus lent, de plus profond, comme une nappe d'eau souterraine qui trouve enfin une fissure. Elle pleurait et elle laissait pleurer, sans essayer d'arrêter.
 
 Elle s'endormit sur le canapé.
 
@@ -1511,21 +1651,21 @@ Elle s'endormit sur le canapé.
 
 Elle se réveilla à trois heures du matin.
 
-La villa était dans le noir complet. Quelqu'un — elle, dans son sommeil — avait tiré la couverture du dossier du canapé sur elle. La nuit était silencieuse, avec le fond sonore permanent d'Abidjan — les chiens au loin, un klaxon épisodique, l'insecte dont elle n'avait jamais su le nom.
+La villa dans le noir complet. Le fond sonore permanent d'Abidjan — des chiens au loin, un klaxon épisodique, l'insecte dont elle n'avait jamais su le nom.
 
 Sara se leva. Elle alla à la cuisine, se servit un verre d'eau froide. Elle but debout, appuyée contre l'évier, dans l'obscurité que la veilleuse du réfrigérateur suffisait à dessiner.
 
-Elle resta là un moment. Sans penser. Ou plutôt : en laissant les pensées passer sans les retenir — elles passaient comme des silhouettes derrière un rideau, reconnaissables mais distantes.
+Elle resta là un moment. Sans penser. Ou plutôt : en laissant les pensées passer sans les retenir.
 
-Et puis — et elle ne saurait jamais le nommer autrement que comme ça, une pensée venue d'ailleurs, pas de sa tête mais d'un endroit plus bas, plus central, quelque chose d'antérieur aux mots — une question arriva :
+Et puis — une pensée venue d'ailleurs, pas de sa tête mais d'un endroit plus bas, plus central, quelque chose d'antérieur aux mots — une question arriva :
 
 *Pourquoi est-ce que je suis encore là?*
 
-Pas rhetorique. Pas avec le poids du désespoir de l'après-midi. Une vraie question, posée avec une vraie curiosité — comme si quelque chose en elle voulait connaître la réponse.
+Pas rhétorique. Pas avec le poids du désespoir de l'après-midi. Une vraie question, posée avec une vraie curiosité. Comme si quelque chose en elle voulait connaître la réponse.
 
-Elle ne répondit pas. Il n'y avait pas de réponse formulée. Pas ce soir.
+Il n'y avait pas de réponse formulée. Pas ce soir.
 
-Mais il y avait quelque chose. Quelque chose qui ressemblait à une main invisible dans le noir — pas qui attrape, pas qui retient de force, juste qui est là. Une présence. Un reste. Une chose tellement petite qu'elle n'aurait pas su lui donner de nom.
+Mais il y avait quelque chose. Une chose tellement petite qu'elle n'aurait pas su lui donner de nom. Quelque chose qui ressemblait à une main invisible dans le noir — pas qui attrape, pas qui retient de force, juste qui est là. Une présence. Un reste.
 
 Elle finit son eau. Elle alla se recoucher sur le canapé. Elle dormit jusqu'au matin.
 
@@ -1533,31 +1673,43 @@ Elle finit son eau. Elle alla se recoucher sur le canapé. Elle dormit jusqu'au 
 
 Le lendemain était un dimanche.
 
-Sara se leva, fit du thé, prit une douche longue. Elle s'habilla — une robe simple en wax bleu, les sandales plates. Elle mangea du pain avec du beurre et de la confiture de mangue devant la fenêtre ouverte sur le jardin.
+Sara se leva, fit du thé, prit une longue douche. S'habilla — une robe simple en wax bleu, sandales plates. Mangea du pain avec du beurre et de la confiture de mangue devant la fenêtre ouverte sur le jardin.
 
-Le frangipanier dans la cour avait de nouvelles fleurs. Elle ne l'avait pas remarqué la veille.
+Le frangipanier dans la cour avait de nouvelles fleurs.
+
+Elle ne l'avait pas remarqué la veille.
 
 À seize heures, elle prit le taxi pour aller chercher les filles chez la belle-mère.
 
-Dans la cour de la maison Kouassi — une maison différente de la villa, plus ancienne, avec une cour en terre battue et un manguier qui avait peut-être soixante ans — Sara entendit les filles avant de les voir. Ruth d'abord — son rire, ce rire-cascade, depuis quelque part dans la maison. Puis Naomi qui disait quelque chose d'une voix grave.
+Dans la cour de la maison Kouassi — plus ancienne, avec une cour en terre battue et un manguier qui avait peut-être soixante ans — Sara entendit les filles avant de les voir. Ruth d'abord, son rire-cascade depuis quelque part dans la maison. Puis la voix grave de Naomi.
 
 La porte s'ouvrit.
 
-Ruth sortit en courant, les nattes à moitié défaites, les genoux poussiéreux. "MAMAN!" Elle n'avait même pas fini de crier son prénom qu'elle était déjà dans les bras de Sara — ce poids chaud et certain, cette petite fille de cinq ans qui s'agrippait avec la confiance absolue de quelqu'un qui ne doute pas d'être rattrapé.
+Ruth sortit en courant, les nattes à moitié défaites, les genoux poussiéreux. "MAMAN!" Elle n'avait pas fini de crier qu'elle était déjà dans les bras de Sara — ce poids chaud et certain, ce corps de cinq ans qui s'agrippait avec la confiance absolue de quelqu'un qui ne doute pas d'être rattrapé.
 
-Naomi arriva derrière, plus lentement, plus sérieuse. Elle s'arrêta devant Sara. Elle leva les yeux vers elle. Ses yeux allèrent une seconde — une fraction de seconde — vers la marque sous l'œil de Sara, que le maquillage couvrait mais peut-être pas complètement. Puis ils revinrent au visage de sa mère.
+Naomi arriva derrière, plus lentement. Elle s'arrêta devant Sara. Elle leva les yeux. Ses yeux allèrent une fraction de seconde vers la marque sous l'œil de Sara, que le maquillage couvrait mais pas complètement.
+
+Puis ils revinrent au visage de sa mère.
 
 Naomi tendit la main.
 
-Sara s'agenouilla. Elle prit la main de Naomi, et Ruth toujours accrochée à son cou, et elle les tint comme ça — les deux ensemble, ses deux filles, dans la cour avec le manguier de soixante ans et la terre battue — et elle les tint longtemps.
+Sara s'agenouilla. Elle prit la main de Naomi, et Ruth toujours accrochée à son cou, et elle les tint — les deux ensemble, ses deux filles, dans la cour avec le manguier de soixante ans et la terre battue.
 
 "Je suis là," dit-elle.
 
-Sa voix était basse. Elle disait ça pour elles. Elle disait ça pour elle aussi. Peut-être qu'elle répondait, avec trois mots simples, à la question de trois heures du matin.
+Sa voix était basse. Elle disait ça pour elles. Elle disait ça pour elle aussi.
 
 *Pourquoi est-ce que je suis encore là?*
 
 Je suis là.
+
+Elle les tint longtemps.
+
+Et quelque part dans cet embrassement, quelque chose changea définitivement en elle. Quelque chose se posa. Une décision sans mots encore, une orientation sans plan précis. Mais là, réelle, solide comme une pierre sous ses pieds dans la nuit.
+
+Elle ne savait pas encore comment. Elle ne savait pas encore quand.
+
+Mais Sara Mensah — pas Kouassi, Mensah — ne mourrait pas dans cette villa.
 
 ---
 
@@ -1565,15 +1717,15 @@ Je suis là.
 
 Un mois passa.
 
-Sara ne sut pas très bien comment. Le temps, dans cette période, avait une texture étrange — certains jours étaient d'une longueur impossible, chaque heure peuplée de vigilance et de retenue, les oreilles toujours tendues vers le bruit de la voiture de Marcus dans l'allée. D'autres jours passaient vite, trop vite, et Sara se retrouvait le soir sans avoir compris ce qu'elle avait fait de ses heures.
+Sara ne sut pas trop comment. Le temps avait une texture étrange — certains jours étaient d'une longueur impossible, chaque heure peuplée de vigilance, les oreilles tendues vers le bruit de la voiture de Marcus dans l'allée. D'autres jours passaient vite, trop vite, et Sara se retrouvait le soir sans avoir compris ce qu'elle avait fait de ses heures.
 
-Marcus était revenu de Lagos avec des cadeaux et une humeur difficile à lire — pas mauvaise exactement, mais contractée, comme quelqu'un qui attend que l'autre fasse un faux pas pour avoir une raison. Sara avait fait de son mieux pour ne pas lui en donner. Elle marchait sur la ligne fine avec la précision de quelqu'un qui s'y était entraîné des années.
+Marcus était revenu de Lagos avec des cadeaux et une humeur difficile à lire — pas mauvaise exactement, mais contractée, comme quelqu'un qui attend que l'autre fasse un faux pas pour avoir une raison. Sara marchait sur la ligne fine avec la précision de quelqu'un qui s'y entraîne depuis des années.
 
-Mais quelque chose avait changé en elle depuis le samedi de la lettre. Quelque chose de si menu qu'elle n'aurait pas su le montrer à quelqu'un — mais présent. Une toute petite chose dans le creux de la poitrine, comme une braise sous la cendre, qui n'était pas encore un feu mais qui n'était pas éteinte non plus.
+Mais quelque chose avait changé en elle depuis le samedi de la lettre. Quelque chose de si petit qu'elle n'aurait pas su le montrer à quelqu'un. Mais présent. Une toute petite chose dans le creux de la poitrine — comme une braise sous la cendre. Pas encore un feu. Mais pas éteinte non plus.
 
-Un samedi matin — Marcus avait passé la nuit dehors, "une affaire qui s'est étirée", il avait appelé à deux heures pour dire qu'il dormait chez un client — Sara se réveilla avec les filles et décida.
+Un samedi matin — Marcus avait passé la nuit dehors, "une affaire qui s'est étirée", il avait appelé à deux heures du matin — Sara se réveilla avec les filles et décida.
 
-Pas le supermarché de Cocody avec ses allées climatisées et ses chariots et ses clients de Riviera en tenues du samedi. Non. Yopougon. Le marché de Yopougon. Son quartier. L'endroit où elle savait encore qui elle était.
+Pas le supermarché de Cocody avec ses allées climatisées et ses chariots. Non. Yopougon. Le marché de Yopougon. Son quartier. L'endroit où elle savait encore qui elle était.
 
 "On sort," dit-elle à Naomi et Ruth qui mangeaient leur bouillie de maïs à la table de la cuisine. "On va au marché."
 
@@ -1593,17 +1745,19 @@ Naomi posa sa cuillère avec soin. Elle regarda sa mère. "On y va en taxi?"
 
 Naomi hocha la tête. Une petite décision prise, une petite chose classée. Puis elle reprit sa bouillie.
 
+*C'est ça, ma Naomi,* pensa Sara en les regardant toutes les deux — la petite sérieuse et la petite flamme. *Vous êtes encore là. Je suis encore là. C'est déjà quelque chose.*
+
 ---
 
-Le taxi collectif — il y en avait encore à Cocody si on savait où chercher — les prit à l'angle de l'avenue principale. Sara s'assit avec Ruth sur les genoux, Naomi à côté d'elle, le sac à provisions en raphia entre ses pieds.
+Le taxi collectif les prit à l'angle de l'avenue principale. Sara s'assit avec Ruth sur les genoux, Naomi à côté d'elle, le sac à provisions en raphia entre ses pieds.
 
 Abidjan défilait par la fenêtre ouverte.
 
-Sara regardait la ville. Elle la regardait vraiment, pour la première fois depuis longtemps — pas comme le décor familier qu'on traverse sans voir, mais comme quelque chose qui mérite qu'on lui accorde des yeux. Riviera d'abord, ses immeubles modernes, ses supermarchés aux façades vitrées, ses boutiques de téléphonie mobile avec leurs affiches de promotions. Les ronds-points avec leurs fleurs entretenues par les agents municipaux. Les bâtiments administratifs couleur béton. Tout ça qui sentait l'argent neuf, l'aspiration, quelque chose d'un peu impersonnel comme une ville qui voulait ressembler à une autre ville.
+Sara regardait la ville. Elle la regardait vraiment, pour la première fois depuis longtemps — pas comme le décor familier qu'on traverse sans voir, mais comme quelque chose qui mérite qu'on lui accorde des yeux. Riviera d'abord, ses immeubles modernes, ses supermarchés aux façades vitrées. Les ronds-points avec leurs fleurs entretenues. Tout ça qui sentait l'argent neuf et quelque chose d'impersonnel, comme une ville qui voulait ressembler à une autre ville.
 
-Puis le pont. La lagune en dessous, verte et chargée ce matin, avec des pirogues qui traversaient dans la brume légère du matin. Et de l'autre côté — la transformation. Les immeubles cédaient. Les maisons basses reprenaient leurs droits, leurs cours en terre battue visibles depuis la rue, leurs toits de tôle, leurs bougainvillées qui débordaient par-dessus les murs. Les boutiques aux noms peints à la main sur les devantures. Les pharmacies avec leurs croix vertes. Les "cabines" téléphoniques tenues par des filles avec des parasols.
+Puis le pont. La lagune en dessous, verte et chargée ce matin, avec des pirogues qui traversaient dans la brume légère. Et de l'autre côté — la transformation. Les immeubles cédaient. Les maisons basses reprenaient leurs droits. Les toits de tôle. Les bougainvillées qui débordaient par-dessus les murs. Les boutiques aux noms peints à la main. Les "cabines" téléphoniques tenues par des filles avec des parasols.
 
-L'air était différent. Plus chaud, plus chargé — l'odeur de la ville qui se réveille pour de vrai, pas la version climatisée.
+L'air était différent. Plus chaud, plus chargé. L'odeur de la ville qui se réveille pour de vrai.
 
 Ruth appuyait son nez contre la vitre.
 
@@ -1619,9 +1773,9 @@ Ruth appuyait son nez contre la vitre.
 
 "Il se repose."
 
-Naomi regardait sans demander. Elle prenait tout en elle, l'enregistrait, le rangeait — c'était sa façon à elle de voir le monde.
+Naomi regardait sans demander. Elle prenait tout en elle, l'enregistrait, le rangeait.
 
-Sara sentit quelque chose dans sa poitrine. Un allègement. Comme si l'air de Yopougon, différent de l'air de Cocody, faisait quelque chose à ses poumons. Elle prit une grande inspiration par la fenêtre ouverte.
+Sara prit une grande inspiration par la fenêtre ouverte.
 
 *Yopougon. Je suis chez moi.*
 
@@ -1629,11 +1783,11 @@ Sara sentit quelque chose dans sa poitrine. Un allègement. Comme si l'air de Yo
 
 Le marché les accueillit avec du bruit, de la couleur, de l'odeur.
 
-C'était un samedi matin, donc en pleine activité — les marchandes installées depuis l'aube, les clientes qui circulaient, les porteurs avec leurs brouettes, les enfants qui se faufilaient entre les adultes. Les étals débordaient : des montagnes de tomates et de piments, des pagnes disposés sur des tréteaux comme des draperies royales, des poissons fumés suspendus en grappes, des bassines en plastique coloré empilées jusqu'au ciel, des sacs de riz et de maïs et de farine. Les odeurs se superposaient en couches — le poisson fumé d'abord, puissant et persistant, puis en dessous l'attiéké frais avec son acidité douce, puis le savon de Marseille et le savon lessive, puis quelque chose d'indéfinissable qui était l'odeur du marché lui-même, l'odeur de tout ça ensemble, de toutes ces vies qui se croisaient ici chaque samedi depuis des décennies.
+Un samedi matin en pleine activité — les marchandes installées depuis l'aube, les clientes qui circulaient, les porteurs avec leurs brouettes, les enfants qui se faufilaient entre les adultes. Les étals débordaient : des montagnes de tomates et de piments, des pagnes disposés sur des tréteaux comme des draperies royales, des poissons fumés suspendus en grappes, des bassines en plastique coloré empilées jusqu'au ciel. Les odeurs se superposaient — le poisson fumé d'abord, puissant, puis l'attiéké frais avec son acidité douce, puis le savon de Marseille, puis quelque chose d'indéfinissable qui était l'odeur du marché lui-même, l'odeur de toutes ces vies qui se croisaient ici chaque samedi depuis des décennies.
 
-Les marchandes criaient leurs prix et leurs marchandises. "Tomates fraîches, cinq cents le tas!" "Pagne super wax, venez voir!" "Attiéké de Jacqueville, attiéké frais!" Les négociations se tenaient à voix haute, avec des gestes, des sourires, des mines indignées feintes face aux prix proposés.
+"Tomates fraîches, cinq cents le tas!" "Pagne super wax, venez voir!" "Attiéké de Jacqueville, attiéké frais!"
 
-Ruth était dans tous les sens. Sara la tenait par la main, et Ruth tirait dans toutes les directions à la fois — vers les beignets dorés dans leur huile qui grésillait, vers les ballons de couleur qu'un vendeur portait attachés à une tige, vers un chat roux qui dormait sur un sac de riz avec une indifférence royale.
+Ruth était dans tous les sens. Sara la tenait par la main et Ruth tirait dans toutes les directions — vers les beignets dorés dans leur huile qui grésillait, vers les ballons de couleur qu'un vendeur portait attachés à une tige, vers un chat roux qui dormait sur un sac de riz avec une indifférence royale.
 
 "Maman les beignets! Tu avais promis!"
 
@@ -1643,61 +1797,69 @@ Ruth était dans tous les sens. Sara la tenait par la main, et Ruth tirait dans 
 
 "D'abord les courses."
 
-Ruth fit une tête. Naomi prit l'autre main de Sara, sans rien dire, et elles avancèrent toutes les trois dans le marché.
+Ruth fit une tête. Naomi prit l'autre main de Sara sans rien dire, et elles avancèrent toutes les trois dans le marché.
 
-Sara acheta des tomates, des oignons, du piment vert, du gingembre. Elle acheta de l'attiéké dans un grand sachet — il sentait si bon qu'elle faillit en prendre deux. Elle marchanda le piment avec une marchande qui avait les mains teintes au henné et un sens de l'humour acéré. Elle acheta du savon en barre pour la lessive des filles — le savon de Marseille du supermarché de Cocody ne valait pas le savon du marché, elle avait toujours su ça.
+Sara acheta des tomates, des oignons, du piment vert, du gingembre. De l'attiéké dans un grand sachet. Elle marchanda le piment avec une marchande qui avait les mains teintes au henné et un sens de l'humour acéré. Elle acheta du savon en barre pour la lessive des filles.
 
-Naomi l'observait faire. Elle regardait sa mère marchander, discuter, rire avec les marchandes — parce que Sara riait ici, naturellement, avec la familiarité de quelqu'un dans son élément — et il y avait dans les yeux de Naomi quelque chose d'attentif et peut-être de surpris, comme si elle découvrait une version de sa mère qu'elle n'avait pas encore vue.
+Naomi l'observait faire. Elle regardait sa mère marchander, discuter, rire avec les marchandes — parce que Sara riait ici, naturellement, avec la familiarité de quelqu'un dans son élément. Et dans les yeux de Naomi, quelque chose d'attentif et peut-être de surpris. Comme si elle découvrait une version de sa mère qu'elle n'avait pas encore vue.
 
-*Tu la connaissais, cette version,* pensa Sara, en sentant le regard de sa fille. *C'est ici qu'elle vit. C'est ici qu'elle a toujours vécu.*
+*Tu la connaissais, cette version,* pensa Sara. *C'est ici qu'elle vit. C'est ici qu'elle a toujours vécu.*
 
-Elles avancèrent vers la boulangerie d'en face — pas dans le marché à proprement parler, mais juste de l'autre côté de la rue, une boutique étroite avec ses pains exposés dans la vitrine, l'odeur du pain chaud qui traversait l'air.
+---
+
+Elles traversèrent vers la boulangerie de l'autre côté de la rue. Une boutique étroite avec ses pains exposés dans la vitrine, l'odeur du pain chaud qui traversait l'air.
 
 C'est là que Sara s'arrêta.
 
-Devant la boulangerie.
+Devant la boulangerie, il y avait un homme sur le seuil.
 
-Il y avait un homme sur le seuil. Il portait un polo bleu marine — bleu marine simple, coton lavé, le genre de polo qu'on met parce qu'il est propre et confortable, pas pour être remarqué. Il tenait un pain sous le bras et regardait quelque chose dans son autre main — une liste, écrite à la main sur un bout de papier, qu'il consultait avec la concentration de quelqu'un qui essaie de ne rien oublier.
+Il portait un polo bleu marine — bleu marine simple, coton lavé, le genre de polo qu'on met parce qu'il est propre et confortable, pas pour être remarqué. Il tenait un pain sous le bras et regardait quelque chose dans son autre main — une liste, écrite à la main sur un bout de papier, qu'il consultait avec la concentration de quelqu'un qui essaie de ne rien oublier.
 
 Sara s'arrêta.
 
 *Elias.*
 
-La pensée arriva avant la certitude. Avant même d'avoir vu son visage — parce qu'il était de profil, tourné vers sa liste — quelque chose en elle avait reconnu la façon dont il se tenait. Cette façon particulière qu'avait Elias Kouamé de se tenir debout, légèrement penché en avant, avec une concentration tranquille dans les épaules.
+La pensée arriva avant la certitude. Avant même d'avoir vu son visage — il était de profil, tourné vers sa liste — quelque chose en elle avait reconnu la façon dont il se tenait. Cette façon particulière qu'avait Elias Kouamé de se tenir debout. Légèrement penché en avant, avec une concentration tranquille dans les épaules.
 
-Elle avait oublié. Elle avait oublié qu'elle avait oublié. Et maintenant, en voyant cet homme de profil devant une boulangerie de Yopougon avec son pain et sa liste de courses, quelque chose remontait qui avait la texture du temps retrouvé — une chose enfouie sous des années de vie différente.
+Elle avait oublié. Elle avait oublié qu'elle avait oublié. Et maintenant, en voyant cet homme de profil devant une boulangerie de Yopougon avec son pain et sa liste de courses, quelque chose remontait qui avait la texture du temps retrouvé.
 
 *Elias.*
 
-Était-ce lui? Elle avait vingt-huit ans, il en avait vingt-neuf ou trente maintenant — ils avaient perdu six ou sept ans. Les gens changent en sept ans. Les corps changent, les visages changent.
+Était-ce lui? Elle avait vingt-huit ans, il en avait vingt-neuf ou trente maintenant. Les gens changent en sept ans. Les corps changent, les visages changent.
 
-Mais la façon de se tenir debout. La façon de lire une liste avec cette sérieux appliqué.
+Mais la façon de se tenir debout. La façon de lire une liste avec ce sérieux appliqué.
 
 *C'est lui.*
 
-Sara resta où elle était. Sa main tenait celle de Ruth, et l'autre celle de Naomi, et elle ne bougea pas. Elle avait ses lunettes de soleil — le réflexe, depuis la semaine passée, le maquillage couvrait mais les lunettes assuraient. L'habitude était là même quand la marque ne l'était plus vraiment.
+Sara resta où elle était. Sa main tenait celle de Ruth, l'autre celle de Naomi. Elle avait ses lunettes de soleil — le réflexe depuis des mois, le maquillage couvrait mais les lunettes assuraient. L'habitude était là même quand la marque ne l'était plus vraiment.
 
 Elle aurait pu passer. La rue était assez large. Il regardait sa liste, pas dans sa direction. Elle aurait pu continuer, traverser vers un autre étal, ne jamais le laisser la voir.
 
-La question dura peut-être cinq secondes.
+La question dura cinq secondes.
 
 L'homme leva les yeux.
 
 Il la regarda.
 
-Le moment de reconnaissance prit le temps qu'il fallait — ce moment particulier où deux personnes qui se sont connues longtemps avant se retrouvent dans un contexte qui ne ressemble à aucun des contextes où ils se sont connus, et où les yeux font le travail lentement, peeling des années, cherchant sous le visage d'adulte le visage qu'ils connaissaient.
+La reconnaissance prit le temps qu'elle devait prendre — ce moment particulier où deux personnes qui se sont connues longtemps avant se retrouvent dans un contexte qui ne ressemble à rien, et où les yeux font le travail lentement, cherchant sous le visage d'adulte le visage qu'ils connaissaient.
 
-"Sara?" 
+"Sara?"
 
-Sa voix. Elle avait oublié sa voix aussi. Légèrement grave, avec cette douceur particulière, la voix d'un homme qui parle toujours comme s'il voulait que les mots arrivent intacts.
+Sa voix. Elle avait oublié sa voix aussi. Légèrement grave, avec cette douceur particulière. La voix d'un homme qui parle toujours comme s'il voulait que les mots arrivent intacts.
 
 Elle traversa la rue.
 
-Ils se firent face sur le trottoir devant la boulangerie. Sara avait ses lunettes de soleil. Elias avait toujours son pain sous le bras et sa liste à la main. Il y avait entre eux la distance un peu maladroite des retrouvailles — trop proches pour être des étrangers, trop loin dans le temps pour savoir exactement ce qu'on est l'un pour l'autre maintenant.
+---
+
+Ils se firent face sur le trottoir devant la boulangerie.
+
+Sara avec ses lunettes de soleil. Elias avec son pain sous le bras et sa liste à la main. Entre eux, la distance un peu maladroite des retrouvailles — trop proches pour être des étrangers, trop loin dans le temps pour savoir exactement ce qu'on est l'un pour l'autre maintenant.
 
 "Elias," dit-elle.
 
-Il sourit. Pas le sourire de la surprise, pas le sourire de la performance — le sourire de quelqu'un qui voit quelque chose de bien et qui ne sait pas encore s'il peut y croire. "C'est vraiment toi." Il regarda ses lunettes de soleil. Il baissa les yeux vers les petites filles.
+Il sourit. Pas le sourire de la surprise, pas celui de la performance — le sourire de quelqu'un qui voit quelque chose de bien et qui ne sait pas encore s'il peut y croire.
+
+"C'est vraiment toi." Il regarda les lunettes de soleil. Il baissa les yeux vers les petites filles.
 
 Ruth tirait déjà sur la main de Sara. "Maman, c'est qui lui?"
 
@@ -1707,7 +1869,7 @@ Elias s'agenouilla — naturellement, sans s'annoncer, avec l'aisance de quelqu'
 
 Ruth se cacha derrière Sara, mais en regardant Elias depuis son abri avec les yeux de quelqu'un qui est intéressé même s'il ne veut pas le montrer.
 
-"C'est Elias," dit Sara. Sa voix était un peu hésitante, comme quelqu'un qui n'a pas dit ce prénom depuis des années et qui le trouve intact dans la bouche. "Mon ami d'enfance."
+"C'est Elias," dit Sara. Sa voix était un peu hésitante — elle trouvait ce prénom intact dans sa bouche après des années. "Mon ami d'enfance."
 
 Naomi, qui était restée à côté de Sara et regardait Elias avec son regard d'inventaire, tendit la main vers lui.
 
@@ -1715,11 +1877,17 @@ Elias la prit. Il la serra gravement, avec le même sérieux que Naomi — un ad
 
 "Je m'appelle Naomi," dit Naomi.
 
-"Je sais," dit Elias. Puis il réalisa et ajouta : "Ta maman m'a... enfin, elle m'a parlé de toi, autrefois." Ce n'était pas tout à fait vrai, ils s'étaient perdus de vue avant les enfants, mais Naomi hocha la tête comme si c'était la chose la plus normale du monde.
+"Je sais." Puis il réalisa et ajouta : "Ta maman m'a... enfin, elle m'a parlé de toi, autrefois."
 
-Elias se releva. Il regarda Sara — vraiment regarda, le regard de quelqu'un qui cherche à faire un bilan rapide, à voir comment la personne devant lui va, et Sara sentit quelque chose se contracter légèrement dans sa poitrine parce que Elias avait toujours eu cette façon-là de regarder les gens, pas en surface mais juste en dessous.
+Ce n'était pas tout à fait vrai — ils s'étaient perdus de vue avant les enfants. Mais Naomi hocha la tête comme si c'était la chose la plus normale du monde.
 
-Ses yeux allèrent une seconde vers les lunettes de soleil. Une seconde seulement. Puis il revint à son visage.
+Elias se releva. Il regarda Sara — vraiment regarda, le regard de quelqu'un qui cherche à voir comment la personne devant lui va, juste en dessous de la surface.
+
+Ses yeux allèrent une seconde vers les lunettes de soleil.
+
+Une seconde seulement.
+
+Puis il revint à son visage.
 
 Il ne dit rien sur les lunettes.
 
@@ -1727,25 +1895,27 @@ Il ne dit rien sur les lunettes.
 
 "Non. Cocody." Une pause. "Je revenais juste... voir le marché."
 
-Il hocha la tête. "Je vis à Ananeraie. J'ai pris un appartement là-bas l'an dernier." Il leva son pain et sa liste. "Du pain et du concentré de tomate. Courses stratégiques."
+Il hocha la tête. "Je vis à Ananeraie. J'ai pris un appartement là-bas l'an dernier." Il leva son pain et sa liste avec un demi-sourire. "Du pain et du concentré de tomate. Courses stratégiques."
 
-Sara rit. C'était sorti malgré elle — un vrai rire, pas le rire poli qu'elle avait appris à sortir lors des dîners de Marcus, mais le rire d'avant, léger et court.
+Sara rit. C'était sorti malgré elle — un vrai rire, léger et court, pas le rire poli qu'elle avait appris à sortir lors des dîners de Marcus.
+
+Elle avait oublié comment ça faisait, un rire qui sort tout seul.
 
 "Et toi tu travailles toujours en communication?"
 
 "J'ai arrêté. Je suis à la maison avec les filles pour l'instant."
 
-Il hocha la tête encore. Il ne dit pas *ah c'est dommage* ni *tu vas reprendre?* Il dit juste : "Les filles ont de la chance de t'avoir."
+Il hocha la tête. Il ne dit pas *ah c'est dommage* ni *tu vas reprendre?* Il dit juste : "Les filles ont de la chance de t'avoir."
 
-Ils se regardèrent. Entre eux, la rue du marché continuait à vivre — les klaxons, les marchandes, Ruth qui avait décidé de regarder le chat roux du marché depuis la distance de la main de Sara. Naomi toujours à côté, droite, attentive.
+Ils se regardèrent. Entre eux, la rue du marché continuait à vivre — les klaxons, les marchandes, Ruth qui avait décidé d'observer le chat roux depuis la sécurité de la main de Sara. Naomi toujours à côté, droite, attentive.
 
 "Il faudrait qu'on se retrouve," dit Elias. "Prendre un café. Rattraper sept ans." Un sourire légèrement embarrassé. "Si tu veux, bien sûr."
 
-Sara réfléchit. Ce fut une vraie réflexion — pas la politesse automatique, pas le *oui oui bien sûr* qu'on dit sans penser. Elle réfléchit vraiment, une seconde ou deux, à ce que ça voulait dire de revoir Elias, de s'asseoir en face de lui et de rattraper sept ans.
+Sara réfléchit. Une vraie réflexion — pas la politesse automatique. Elle réfléchit vraiment, une seconde ou deux, à ce que ça voulait dire de revoir Elias, de s'asseoir en face de lui et de rattraper sept ans.
 
 "Ce serait bien," dit-elle.
 
-Ils échangèrent leurs numéros. Maladroitement — Elias n'avait pas de stylo, Sara chercha le sien dans son sac, ils finirent par entrer tous les numéros directement dans les téléphones respectifs, ce qui impliqua une danse légèrement comique de deux adultes qui ne savent plus comment faire ces gestes simples en présence l'un de l'autre.
+Ils échangèrent leurs numéros. Maladroitement — Elias n'avait pas de stylo, Sara chercha le sien dans son sac, ils finirent par entrer les numéros directement dans les téléphones respectifs, ce qui impliqua une danse légèrement comique de deux adultes qui ne savent plus comment faire ces gestes simples en présence l'un de l'autre.
 
 Elias salua les filles avant de partir. Il donna la main à Naomi encore une fois. Il dit à Ruth : "Profite bien des beignets."
 
@@ -1761,7 +1931,7 @@ Elias se tourna, regarda. "Ah oui. Il a l'air bien installé."
 
 Elias regarda Sara. Sara leva les yeux au ciel avec un sourire.
 
-"D'accord, Fifou," dit Elias gravement. "Très bien installé, Fifou."
+"D'accord," dit Elias gravement. "Très bien installé, Fifou."
 
 Ruth hocha la tête, satisfaite.
 
@@ -1769,9 +1939,9 @@ Elias s'éloigna. Sara le regarda repartir — le polo bleu marine, la façon de
 
 ---
 
-Le taxi du retour prit quarante minutes à cause d'un bouchon au carrefour de la bibliothèque nationale. Ruth s'endormit dans les bras de Sara à mi-chemin, les beignets achetés et mangés depuis longtemps, les lèvres encore légèrement grasses. Naomi s'était appuyée contre la cuisse de Sara, le regard par la fenêtre — elle regardait Abidjan défiler à l'envers, les rues de Yopougon qui céderaient bientôt la place aux immeubles de Cocody.
+Le taxi du retour prit quarante minutes à cause d'un bouchon au carrefour de la bibliothèque nationale. Ruth s'endormit dans les bras de Sara à mi-chemin, les beignets mangés depuis longtemps, les lèvres encore légèrement grasses. Naomi s'était appuyée contre la cuisse de Sara, le regard par la fenêtre.
 
-Le soleil de l'après-midi entrait de biais par la vitre ouverte. Il chauffait le visage de Sara, le bras de Sara, les cheveux de Ruth endormie. Sara regardait le numéro d'Elias dans son téléphone — il était là, nouveau, avec son prénom écrit en entier parce qu'elle n'avait pas de surnom à lui mettre et qu'elle n'allait pas en inventer maintenant.
+Le soleil de l'après-midi entrait de biais par la vitre ouverte. Il chauffait le visage de Sara, le bras de Sara, les cheveux de Ruth endormie. Sara regardait le numéro d'Elias dans son téléphone — là, nouveau, avec son prénom écrit en entier.
 
 *Elias Kouamé. C'est quoi ça, le hasard?*
 
@@ -1795,13 +1965,19 @@ Sara regarda le numéro dans son téléphone. "Je ne sais pas encore. Peut-être
 
 Naomi hocha la tête et retourna à sa fenêtre.
 
-Sara appuya la tête contre le vitre tiède. Le taxi roulait vers Cocody, vers la villa aux bougainvillées, vers la maison qui n'était pas chez elle. Dans sa poitrine, quelque chose de si petit qu'elle n'osait pas encore lui donner de nom — une chose qui ressemblait à de l'espoir si elle avait su que c'était de l'espoir, une toute petite flamme si elle avait su reconnaître les flammes.
+---
+
+Sara appuya la tête contre la vitre tiède.
+
+Le taxi roulait vers Cocody. Vers la villa aux bougainvillées. Vers la maison qui n'était pas chez elle.
+
+Dans sa poitrine, quelque chose de si petit qu'elle n'osait pas encore lui donner de nom — une chose qui ressemblait à de l'espoir si elle avait su que c'était de l'espoir. Une toute petite flamme si elle avait su reconnaître les flammes.
 
 Elle plia les doigts autour du téléphone.
 
 *C'est quoi ça, le hasard?*
 
-Le taxi traversa le pont. La lagune en dessous, verte et lourde, brillait sous le soleil de l'après-midi. De l'autre côté, Abidjan continuait — ses deux versions, ses deux rythmes, ses deux visages. Sara les portait tous les deux en elle, elle l'avait toujours su, elle l'avait simplement oublié pendant quelques années dans une villa trop grande avec des rideaux trop lourds.
+Le taxi traversa le pont. La lagune en dessous, verte et lourde, brillait sous le soleil de l'après-midi. De l'autre côté, Abidjan continuait — ses deux versions, ses deux rythmes, ses deux visages. Sara les portait tous les deux en elle. Elle l'avait toujours su. Elle l'avait simplement oublié pendant quelques années dans une villa trop grande avec des rideaux trop lourds.
 
 Elle les portait encore.
 
@@ -1811,7 +1987,23 @@ Ce n'était pas grand-chose.
 
 Mais dans la vie de Sara Kouassi, née Mensah, depuis longtemps, ce n'était pas rien non plus.
 
----
+Puis quelque chose arriva que Sara ne remarqua qu'à moitié sur le moment, parce que son regard était tourné vers la lagune et son esprit vers le téléphone dans sa main.
+
+Naomi s'était retournée encore une fois.
+
+Elle regardait sa mère avec ses yeux d'inventaire, ses yeux de petite fille qui observe le monde et ne dit rien mais range tout.
+
+Et puis — doucement, presque timidement, avec le sérieux de sept ans qui ne sait pas encore comment faire les choses sans les faire entièrement — Naomi posa sa main sur la main de Sara.
+
+Juste comme ça. Sans mot. Sans raison donnée.
+
+Sara sentit la pression de cette petite main sur la sienne.
+
+Elle ne dit rien non plus.
+
+Mais elle la serra.
+
+Et le taxi roula, et la lagune passa, et quelque part en elle, sous la cendre, la braise était encore là.
 
 *[FIN PARTIE II]*
 ---
