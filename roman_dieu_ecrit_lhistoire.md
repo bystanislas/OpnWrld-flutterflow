@@ -1,4 +1,4 @@
-# C'EST DIEU QUI ÉCRIT L'HISTOIRE
+# AU FINAL, C'EST DIEU QUI ÉCRIT L'HISTOIRE
 
 *Une histoire d'amour, de brisure et de renaissance*
 
@@ -44,69 +44,75 @@
 
 ---
 
+## PROLOGUE — L'avant de l'après
+
+Sara trouva la lettre un samedi matin, dans un carton qu'elle avait oublié de vider depuis le déménagement.
+
+Elle cherchait les chaussures blanches de Ruth — le baptême était dans deux heures, les filles devaient être prêtes, il y avait encore le petit-déjeuner à préparer — et dans le carton sous le lit, entre un vieux dictionnaire et une trousse de crayons de couleur, il y avait l'enveloppe.
+
+Blanche. Non cachetée. À l'encre bleue, deux prénoms en haut à gauche :
+
+*Naomi. Ruth.*
+
+Sara s'assit sur le sol.
+
+Elle n'avait pas besoin de l'ouvrir. Ses propres mots lui revinrent avec la précision particulière des choses écrites dans les moments extrêmes — *mes filles, si vous lisez ceci c'est que je suis partie avant d'être prête, je veux que vous sachiez que ce n'est pas votre faute, que vous n'avez rien fait, que vous êtes la chose la plus belle que j'aie jamais—*
+
+Elle s'arrêta là.
+
+Dix-huit mois.
+
+Dix-huit mois depuis cette nuit dans la cuisine de Cocody, le stylo bleu à la main, les côtes encore douloureuses, convaincue que la vie allait mieux sans elle dedans. Dix-huit mois depuis que la voisine du dessus avait frappé pour du sel — du sel, à vingt-deux heures, avec ce mauvais timing qui était en réalité le meilleur timing du monde.
+
+Sara tint l'enveloppe dans ses deux mains. Elle ne l'ouvrit pas.
+
+Elle la glissa dans la poche de sa jupe blanche — celle qu'elle avait choisie pour le baptême.
+
+— Maman ! cria Naomi depuis le couloir. Ruth a mis ses chaussures à l'envers !
+
+— J'arrive.
+
+Sara se leva. Elle alla aider Ruth. Elle fit le petit-déjeuner, tissa les nattes de ses filles, attacha les sandales blanches. Elle fit tout ça normalement, avec ses mains normales, dans sa cuisine normale.
+
+Mais l'enveloppe était dans sa poche. Elle la sentait contre sa paume à chaque mouvement — le papier, les deux prénoms, ce qu'elle avait été capable d'écrire.
+
+*C'était moi, ça. Cette femme-là, c'était moi.*
+
+Elle sortit dans la lumière du matin, une main dans celle de Naomi, Ruth contre sa hanche.
+
+Abidjan en mars — l'air encore frais avant que le soleil prenne de la force, l'odeur des boulangeries ouvertes, une mobylette qui pétarade au bout de la rue. Une vie ordinaire de samedi matin.
+
+Entre la lettre dans sa poche et la lumière devant elle, il y avait une histoire.
+
+Voilà cette histoire.
+
+---
+
 ## PARTIE I — LES ANNÉES D'AVANT
 
 ---
 
-### Chapitre 1 — La reine du préau
-
-Le soleil tombait sur Yopougon comme une sentence.
-
-Il était dix heures du matin, et la cour de l'école primaire Sainte-Marie vibrait sous une lumière blanche et dure qui ne laissait aucun recoin à l'ombre. Le sol de latérite rouge — ce rouge vif, presque obscène, qu'on ne trouve qu'ici, qu'en Côte d'Ivoire, comme si la terre elle-même avait décidé d'être flamboyante — renvoyait la chaleur en vagues lentes. Les deux manguiers au fond de la cour offraient un cercle d'ombre maigre sous lequel quelques enfants s'étaient réfugiés, mais la majorité s'agitait en plein soleil avec cette insouciance propre à ceux dont les corps ne savent pas encore qu'ils ont des limites.
-
-C'était la récréation de dix heures. Le moment où l'école Sainte-Marie lâchait ses cent quarante élèves comme on ouvre une cage — d'un coup, avec fracas, avec cette explosion de cris et de rires qui traversait les murs de brique et montait jusqu'au ciel.
-
-Et au centre de tout ça, il y avait Sara.
-
-Elle avait huit ans. Elle portait l'uniforme beige réglementaire — jupe plissée, chemisier à col Claudine — mais quelque chose dans la façon dont elle le portait suggérait qu'il avait été taillé pour elle, rien que pour elle, même si c'était le même que celui de toutes les autres filles de CE2. Ses nattes, soigneusement tressées par sa mère le matin même, étaient ornées de petites perles bleues qui cliquetaient quand elle tournait la tête, et elle tournait souvent la tête, parce que Sara Mensah était du genre à vouloir tout voir, tout attraper, tout être là où ça se passait.
-
-Elle chantait.
-
-C'était une chanson qu'elle avait inventée sur le moment, ou peut-être qu'elle l'avait entendue quelque part et l'avait fait sienne — avec Sara, il était toujours difficile de dire où finissait ce qu'elle prenait et où commençait ce qu'elle créait. Elle chantait et dansait en même temps, les bras levés, les pieds qui frappaient le sol de latérite en rythme, et autour d'elle cinq ou six filles l'imitaient avec un temps de retard, comme des planètes en orbite autour d'un soleil qu'elles n'avaient pas décidé de suivre mais vers lequel elles se trouvaient attirées.
-
-Aminata tapait dans ses mains.
-Bintou essayait d'attraper les pas de Sara.
-Kenza riait trop fort et se trompait de rythme.
-
-Sara, elle, ne regardait personne. Elle regardait quelque chose au-delà de la cour, au-delà des murs peints en jaune délavé de l'école Sainte-Marie, quelque chose qui n'existait que dans sa tête et qui avait l'air d'être magnifique. Son visage était une chose à voir — ce n'était pas encore la beauté pleine et déclarée qu'elle allait devenir, mais il y avait déjà cette promesse, cette clarté dans les traits, quelque chose d'ordonné et de lumineux qui faisait que les adultes s'arrêtaient parfois pour la regarder et souriaient sans savoir pourquoi.
-
-Elias Kouamé, lui, ne dansait pas.
-
-Il était assis contre le mur est de la classe de CE2, à l'endroit précis où le bâtiment projetait une bande d'ombre étroite, assez large pour un garçon mince qui savait se faire petit. Il avait les jambes croisées, un cahier ouvert sur les genoux — pas un cahier scolaire, mais un cahier quadrillé à couverture orange qu'il avait apporté de chez lui — et il tenait un crayon avec cette concentration particulière de ceux qui dessinent vraiment, pas de ceux qui griffonnent pour s'occuper.
-
-Elias dessinait depuis l'âge de quatre ans. Sa mère le disait avec une fierté mi-inquiète : *ce garçon, il dessine tout, il dessine les murs, il dessine les assiettes, il va me dessiner moi un jour si je fais pas attention*. Elle avait fini par lui acheter des cahiers exprès, parce que les murs de la maison de Yopougon-Sideci ne pouvaient pas tout accueillir.
-
-Ce matin-là, il dessinait l'école.
-
-Il avait commencé par les manguiers — les deux grandes silhouettes sombres au fond, leurs branches qui s'étalaient comme des bras ouverts. Puis les bâtiments, les fenêtres avec leurs barreaux peints en vert, le mât du drapeau au centre de la cour. Il avait dessiné les enfants qui couraient, les petits groupes, la fille qui pleurait près du robinet, le garçon qui sautait par-dessus le banc en bois.
-
-Et au milieu du dessin, sans vraiment l'avoir décidé, il avait dessiné une silhouette plus précise que les autres. Une fille avec des nattes et des perles, les bras levés, en plein mouvement. Il n'avait pas réalisé que c'était Sara. Il n'avait pas pensé à Sara en dessinant. Sa main avait simplement suivi ce que ses yeux voyaient, et ses yeux, depuis quelques minutes, revenaient sur elle sans que sa tête lui ait donné l'ordre de le faire.
-
-Il était en train de préciser les perles dans les nattes — de petits cercles, soigneusement rangés — quand une ombre tomba sur son cahier.
-
-Il leva les yeux.
-
-Sara Mensah le regardait.
-
-Elle avait arrêté de danser. Elle était là, devant lui, les mains sur les hanches, les perles bleues immobiles dans ses nattes arrêtées, et elle regardait son cahier avec cette expression qu'Elias allait apprendre à reconnaître au fil des années — ce mélange de curiosité immédiate et de jugement suspendu, comme si elle n'avait pas encore décidé si ce qu'elle voyait méritait son intérêt ou non.
+## Chapitre 1 — La reine du préau
 
 — C'est moi ça ? dit-elle.
 
-Sa voix était directe. Pas agressive, pas timide. Directe, comme si poser la question était la chose la plus naturelle du monde.
+Elias Kouamé leva les yeux. La fille s'était accroupie sans cérémonie devant lui — elle avait simplement arrêté de danser, traversé la cour et s'était mise là, à trente centimètres, les mains sur les genoux, à regarder son cahier comme si elle en avait le droit naturel.
 
-Elias baissa les yeux sur son dessin. La silhouette au centre. Les bras levés. Les perles dans les nattes. Il sentit quelque chose de chaud monter dans ses joues — pas tout à fait de la honte, pas tout à fait de la fierté. Quelque chose entre les deux.
+Elle avait de grandes nattes avec des perles bleues. Les perles avaient l'air de cliquer même quand elle ne bougeait pas.
 
-— C'est... la cour, dit-il. Je dessinais la cour.
+Elias baissa les yeux sur son dessin. La silhouette au centre — bras levés, nattes avec les perles soigneusement tracées une par une. Quelque chose de chaud lui monta dans les joues.
 
-— Ouais mais c'est moi au milieu, là, dit Sara. Elle s'accroupit sans cérémonie pour mieux voir le cahier. Regarde les perles. T'as mis les perles bleues.
+— C'est... la cour. Je dessinais la cour.
 
-Elias ne répondit pas. Il n'avait rien à répondre à ça.
+— Ouais mais c'est moi au milieu. — Elle pointa du doigt. — T'as mis les perles bleues.
 
-Sara tourna la tête vers lui. Leurs visages se trouvèrent à quelques dizaines de centimètres l'un de l'autre. Elle avait de grands yeux sombres avec quelque chose d'attentif dedans, et à cet instant précis ils étaient posés sur lui avec une intensité qu'il ne connaissait pas encore mais qui allait revenir souvent.
+Il n'avait rien à répondre à ça.
+
+Elle tourna la tête vers lui. Leurs visages se trouvèrent à quelques dizaines de centimètres. Elle avait de grands yeux sombres avec quelque chose d'attentif dedans — un regard qui ne manquait rien.
 
 — C'est bien, dit-elle. T'as bien dessiné mes perles.
 
-Elias souffla doucement. — Merci.
+— Merci.
 
 — Tu dessines tout le temps ?
 
@@ -114,13 +120,13 @@ Elias souffla doucement. — Merci.
 
 — T'as d'autres dessins ?
 
-Il hésita, puis tourna les pages du cahier. La cour d'une séance précédente. La rue devant chez lui, avec le vendeur de brochettes et son chariot fumant. Sa mère assise sur le tabouret rouge de la cuisine. Sara regardait chaque page sans rien dire, mais ses yeux s'animaient légèrement, passaient d'un détail à l'autre avec cette rapidité qu'Elias allait associer pour toujours à elle — ce regard qui ne se posait jamais longtemps au même endroit mais qui, paradoxalement, ne manquait rien.
+Il hésita, puis tourna les pages. La rue devant chez lui avec le vendeur de brochettes. Sa mère sur le tabouret rouge de la cuisine. Sara regardait chaque page, ses yeux passant d'un détail à l'autre avec une rapidité qui ne manquait pourtant rien.
 
-— Le monsieur des brochettes, c'est Bah Alpha, dit-elle soudain en pointant la page. Il est devant chez nous le mardi soir. Ses brochettes sont trop bonnes.
+— Le monsieur des brochettes, dit-elle soudain, c'est Bah Alpha. Il est devant chez nous le mardi soir. Ses brochettes sont trop bonnes.
 
-— Je sais. J'habite dans la même rue. La troisième maison après la boutique de Tanty Adjoua.
+— Je sais. J'habite dans la même rue. Troisième maison après la boutique de Tanty Adjoua.
 
-Sara se redressa. Elle le regarda différemment. Avec ce même air de cataloguer, d'enregistrer.
+Elle se redressa et le regarda autrement. Comme si elle venait d'ajouter une information à une liste.
 
 — Toi c'est comment ton nom ?
 
@@ -130,163 +136,133 @@ Sara se redressa. Elle le regarda différemment. Avec ce même air de cataloguer
 
 — Je sais, dit Elias.
 
-Elle sourit — un sourire bref, comme un accord conclu. Puis elle se rassit par terre à côté de lui, comme si c'était décidé, comme si l'ombre étroite contre ce mur était devenue leur territoire commun depuis toujours.
+Elle sourit — bref, comme un accord conclu. Puis elle s'assit par terre à côté de lui, dans l'ombre étroite que le mur de la classe projetait. Comme si c'était décidé. Comme si cette bande d'ombre était devenue leur territoire commun depuis toujours.
 
-Elias ne dit rien. Il reprit son crayon.
+Elias reprit son crayon.
 
 C'est alors que Kouakou arriva.
 
-Kouakou Yao avait dix ans, un an de retard en CM2, et une façon d'occuper l'espace physique qui lui donnait toujours l'air d'être deux fois plus grand qu'il n'était réellement. Il était le genre de garçon dont les maîtresses parlaient à voix basse dans la salle des professeurs — *celui-là, il faut lui surveiller les mains*. Il n'était pas méchant, exactement. Il était surtout dans cet âge intermédiaire où l'on ne sait pas encore si l'énergie qu'on a en soi va devenir quelque chose de bien ou quelque chose de cassant.
+Kouakou Yao avait dix ans, un an de retard, et une façon d'occuper l'espace qui lui donnait l'air d'être deux fois plus grand qu'il n'était. Il s'approcha avec ce balancement des épaules particulier.
 
-Il s'approcha de Sara avec ce balancement des épaules particulier.
+— Hé, la petite Sara. Donne-moi ton cartable.
 
-— Hé, la petite Sara ! Donne-moi ton cartable.
+— Pourquoi ?
 
-Sara le regarda sans bouger. — Pourquoi ?
-
-— Parce que je veux voir ce qu'il y a dedans.
+— Pour voir ce qu'il y a dedans.
 
 — Y a mes affaires. C'est pas pour toi.
 
-Kouakou avait déjà passé la main vers la bretelle du cartable que Sara avait posé contre le mur à côté d'elle. Elle recula brusquement, attrapa le sac contre elle, mais Kouakou était plus grand et sa main referma le tissu du cartable avec une facilité qui fit quelque chose de désagréable dans la poitrine d'Elias — ce petit mouvement de crispation qui précède les décisions.
+Kouakou passa déjà la main vers la bretelle. Sara recula et agrippa son sac contre elle — mais Kouakou était plus grand, et sa main referma le tissu du cartable avec une facilité qui fit quelque chose dans la poitrine d'Elias.
 
-— Lâche mon sac ! dit Sara. Sa voix avait monté d'un cran mais elle ne pleurait pas. Elle ne pleurait jamais facilement, Elias allait l'apprendre.
-
-Kouakou rit. Un rire de grand qui sait qu'il est grand.
+— Lâche mon sac !
 
 Elias posa son cahier.
 
 — Kouakou.
 
-Le garçon se retourna. Elias était debout maintenant. Il était petit pour ses huit ans, il n'avait pas l'air d'une menace physique. Kouakou fronça les sourcils.
+Le garçon se retourna. Elias était debout. Petit pour ses huit ans, rien d'une menace physique. Kouakou fronça les sourcils.
 
 — Quoi toi ?
 
-— Maîtresse Adjoba, dit Elias. Elle est derrière toi depuis deux minutes. Elle regarde.
+— Maîtresse Adjoba est derrière toi depuis deux minutes. Elle regarde.
 
 Kouakou se retourna d'un coup.
 
-La maîtresse Adjoba n'était pas là. Il n'y avait que le mur jaune délavé du couloir et la poussière rouge de la cour. Mais dans le temps qu'il avait fallu à Kouakou pour vérifier — cette demi-seconde de doute, de vulnérabilité — Sara avait récupéré son cartable et s'était mise debout. Elias était déjà à côté d'elle.
+Il n'y avait que le mur jaune délavé du couloir. Dans la seconde qu'il avait fallu pour vérifier, Sara avait récupéré son sac. Elias était déjà à côté d'elle.
 
-Kouakou comprit qu'il avait été joué. Il regarda Elias avec une expression où la colère se mêlait à quelque chose qui ressemblait presque à du respect involontaire.
+Kouakou comprit. Il regarda Elias avec une expression où la colère se mêlait à quelque chose qui ressemblait à du respect involontaire.
 
-— Petit malin, dit-il. Puis il haussa les épaules et repartit vers le groupe des grands, comme si ça n'avait jamais compté.
+— Petit malin.
+
+Il haussa les épaules et repartit vers le groupe des grands.
 
 Sara regarda Elias.
 
-— T'as menti, dit-elle. La maîtresse était pas là.
+— T'as menti. La maîtresse était pas là.
 
-— Non, dit Elias.
+— Non.
 
 — C'était intelligent quand même.
 
 — Merci.
 
-Ils se rassirent. Le soleil avait avancé de quelques degrés sur son axe et l'ombre contre le mur s'était légèrement déplacée, mais elle était encore là, suffisante pour deux enfants de huit ans assis côte à côte avec un cahier quadrillé entre eux.
+Ils se rassirent. Sara sortit sa boîte en plastique rouge — de l'attiéké froid avec un peu de sauce tomate, les petits morceaux de poisson séché. L'odeur monta dans la chaleur du matin, cette odeur de semoule fermentée légèrement aigre qui était, pour Sara, l'odeur de sa maison.
 
-Sara ouvrit son cartable et en sortit une petite boîte en plastique rouge. Sa mère lui préparait toujours quelque chose pour la récréation — ce matin c'était de l'attiéké froid avec un peu de sauce tomate et des petits morceaux de poisson séché. Elle posa la boîte sur ses genoux et l'ouvrit. L'odeur monta dans la chaleur du matin — cette odeur de semoule de manioc fermentée, légèrement aigre, avec le gras chaud du poisson, une odeur qui était pour Sara l'odeur de sa maison, de sa mère, de tout ce qui était sûr.
+Elias sortit son sandwich — pain baguette, sardines et piment.
 
-Elias sortit de son sac un sandwich enveloppé dans du papier journal — pain baguette, sardines et piment, préparé par son grand frère aîné qui était en charge du petit-déjeuner les matins où leur mère partait tôt au marché d'Adjamé.
+Ils mangèrent en silence. Pas un silence gêné. Un silence qui se connaissait.
 
-Ils mangèrent en silence pendant un moment. C'était un silence comfortable, ce qui était étrange parce qu'ils ne se connaissaient que depuis dix minutes.
+— T'aimes pas danser ? dit Sara entre deux bouchées.
 
-— T'aimes pas danser ? demanda Sara entre deux bouchées d'attiéké.
-
-— Pas trop, dit Elias. J'aime bien regarder.
+— Pas trop. J'aime bien regarder.
 
 — T'aimes regarder les gens ?
 
 — J'aime regarder les choses. Comment elles sont. Comment elles bougent. Après je les dessine.
 
-Sara réfléchit à ça, la joue légèrement gonflée par une bouchée qu'elle n'avait pas encore avalée.
+Sara réfléchit, la joue légèrement gonflée.
 
-— Moi j'aime quand les gens me regardent, dit-elle. Avec une franchise totale, sans vanité consciente — juste une observation sur elle-même, aussi neutre que si elle avait dit *j'aime le jus de gingembre* ou *j'aime les chaussures rouges*. C'est comme ça que j'existe. Quand je danse et que les autres regardent.
+— Moi j'aime quand les gens me regardent, dit-elle. Avec une franchise totale, sans vanité consciente — juste une observation sur elle-même. C'est comme ça que j'existe. Quand je danse et que les autres regardent.
 
-Elias la regarda. — C'est pas obligatoire d'être regardée pour exister.
+— C'est pas obligatoire d'être regardée pour exister.
 
-Sara fronça les sourcils. — Comment tu sais ça ?
+Elle fronça les sourcils. — Comment tu sais ça ?
 
 — Je suis tout le temps dans un coin et j'existe quand même.
 
-Elle le regarda différemment — avec cette même expression d'un moment plus tôt, le regard qui cataloguait, qui enregistrait. Mais il y avait quelque chose de nouveau dedans maintenant. Quelque chose comme de la considération.
+Elle le regarda différemment. Quelque chose comme de la considération.
 
-— T'es bizarre, dit-elle finalement. Mais bien bizarre.
+— T'es bizarre, dit-elle. Mais bien bizarre.
 
-Elias mordit dans son sandwich. — Merci, je crois.
+— Merci, je crois.
 
-La cloche sonna. Ce son métallique, implacable, qui ramenait toujours tout le monde de l'endroit où il était vers l'endroit où il devait être. Autour d'eux, la cour se vida en deux minutes — les enfants se précipitaient vers les rangées de classe, les moniteurs sifflaient, les maîtresses rappelaient à l'ordre depuis les couloirs.
+La cloche sonna. Ce son métallique implacable qui ramenait tout le monde à sa rangée. Sara referma sa boîte, brossa sa jupe de quelques gestes vifs. Elias fermait son cahier.
 
-Sara referma sa boîte rouge et la rangea dans son cartable. Elle se leva, brossa sa jupe de quelques gestes rapides pour en faire partir la poussière rouge. Elias fermait son cahier quadrillé.
-
-— Elias, dit-elle.
+— Elias.
 
 Il leva les yeux.
 
 — Tu seras mon ami ?
 
-Il y avait quelque chose dans la façon dont elle posait la question — pas une supplique, pas une politesse. Une affirmation déguisée en question. Comme si elle avait déjà décidé mais voulait lui donner l'illusion qu'il avait le choix.
+Pas une supplique. Pas une politesse. Une affirmation déguisée en question — comme si elle avait déjà décidé mais voulait lui donner l'illusion du choix.
 
-Elias regarda cette fille de huit ans aux perles bleues dans les nattes et aux yeux qui ne manquaient rien, et il dit :
+Elias regarda cette fille aux perles bleues aux yeux qui ne manquaient rien, et dit :
 
 — Je le suis déjà.
 
-Sara sourit — pas le petit sourire bref d'un accord conclu, mais quelque chose de plus large, de plus lumineux. Puis elle se retourna et courut rejoindre sa rangée, ses perles cliquetant dans ses nattes, ses pieds soulevant de petits nuages de latérite rouge.
+Sara sourit — pas le sourire bref d'un accord conclu. Quelque chose de plus large, de plus lumineux. Puis elle se retourna et courut rejoindre sa rangée, les perles cliquetant dans ses nattes, ses pieds soulevant de petits nuages de latérite rouge.
 
-Elias la regarda partir. Puis il regarda son cahier. La silhouette au centre du dessin, les bras levés, les perles soigneusement tracées.
+Elias la regarda partir. Il regarda son cahier. La silhouette au centre du dessin, les bras levés, les perles soigneusement tracées.
 
-Il referma le cahier et courut lui aussi rejoindre sa rangée.
-
-Quelque chose venait de naître dans la cour de l'école Sainte-Marie, ce matin d'octobre 2002. Quelque chose de pur, de non-négocié, de ces choses qui arrivent avant qu'on ait l'âge de se méfier. Ni l'un ni l'autre n'avait de mot pour ça. Ni l'un ni l'autre n'en avait besoin.
-
-La cloche sonnait encore. Le soleil était toujours là, implacable, sur le sol de latérite rouge.
-
-Il y avait dans cette cour, à cet instant, deux enfants de huit ans qui ne savaient pas encore ce qu'ils représentaient l'un pour l'autre. Deux graines dans une même terre, que le même soleil allait nourrir, que les mêmes pluies allaient tremper. Que la même vie, avec son implacable générosité et sa façon parfois cruelle de distribuer ses dons, allait façonner pendant les années à venir d'une façon qu'aucun plan humain n'aurait pu tracer.
-
-Mais ça, c'est l'histoire de Dieu. Pas celle des enfants.
-
-Les enfants, eux, couraient rejoindre leurs rangées. La poussière rouge se soulevait sous leurs pieds. Les perles bleues cliquetaient.
+Puis il courut lui aussi.
 
 ---
 
-Les semaines qui suivirent établirent ce qui allait être, pendant des années, la géographie naturelle de leur amitié.
+Le chemin de l'école à Yopougon-Sideci faisait vingt-deux minutes à pied — Elias avait compté. Vingt-deux minutes par la route principale avec les motos qui klaxonnaient, ou dix-neuf par les ruelles derrière le marché. Mais les ruelles sentaient les ordures et Sara refusait catégoriquement. *Je veux pas arriver chez moi en sentant la poubelle.*
 
-Elias contre un mur avec son cahier. Sara au centre de quelque chose — une danse, un jeu, une conversation. Et entre eux, invisible mais réel comme le fil rouge que les mères d'Asie attachent à l'annulaire des amants selon la légende, quelque chose qui les ramenait toujours l'un vers l'autre sans qu'ils aient besoin d'en parler.
+Ils faisaient donc le chemin par la route.
 
-Le chemin entre l'école et le quartier de Yopougon-Sideci faisait vingt-deux minutes à pied — Elias avait compté. Vingt-deux minutes par la route principale avec les motos-taxis qui klaxonnaient et la poussière des camions, ou dix-neuf minutes par les ruelles derrière le marché, mais les ruelles sentaient les ordures et Sara refusait systématiquement d'y passer. *Je veux pas arriver chez moi en sentant la poubelle*, disait-elle avec une conviction absolue.
+Ces vingt-deux minutes devinrent leur espace. Ni l'école ni la maison. Entre les deux, le temps se comportait différemment.
 
-Ils faisaient donc le chemin par la route, et ces vingt-deux minutes devinrent leur espace privé. Le temps suspendu entre l'école et chez eux, ni ici ni là, où les mots venaient différemment.
+Sara parlait de sa mère qui vendait du wax au marché d'Adjamé, des noms de motifs qu'elle lui apprenait — *le cœur de la reine, les plumes d'aigle, les larmes de la rivière*. Elle parlait de ce qu'elle voulait être : médecin, chanteuse, ou les deux, pourquoi pas les deux.
 
-Sara parlait de sa mère qui vendait du tissu wax au marché d'Adjamé et qui lui apprenait les noms de tous les motifs — *le cœur de la reine, les plumes d'aigle, les larmes de la rivière*. Elle parlait de sa grande sœur Cécile qui avait quinze ans et qui se mettait du rouge à lèvres en cachette. Elle parlait de ce qu'elle voulait être plus tard — médecin, ou chanteuse, ou les deux, pourquoi pas les deux.
+Elias écoutait. Vraiment — pas la façon dont les garçons regardent sans entendre. Il écoutait comme si chaque mot comptait, comme s'il allait le dessiner plus tard.
 
-Elias écoutait. Il posait des questions, de temps en temps, mais surtout il écoutait avec cette qualité d'attention particulière — pas passive, active, vraiment présente — qui était l'une des choses que Sara aimait chez lui sans pouvoir l'expliquer. Les autres garçons ne l'écoutaient pas vraiment. Ils la regardaient, ils riaient de ce qu'elle disait, mais ils n'écoutaient pas. Elias, lui, écoutait comme si chaque mot comptait, comme s'il allait le dessiner plus tard.
+Il lui parlait de son père mécanicien qui sentait toujours le cambouis même après le bain, de son frère Théodore qui voulait devenir ingénieur, des émissions de dessin animé qu'il regardait pour les décors, pas pour les histoires.
 
-Il lui parlait de son père, mécanicien au garage Total de Yopougon-Maroc, qui sentait toujours le cambouis même après le bain et qui riait très fort à ses propres blagues. De son grand frère Théodore, vingt ans, qui voulait devenir ingénieur. Des émissions de dessin animé qu'il regardait le soir pour les décors, pas pour les histoires, parce que les décors lui apprenaient comment représenter la profondeur et la perspective.
-
-Ils avaient huit ans. Ils parlaient comme s'ils avaient bien plus.
-
-Il faut dire un mot de la maîtresse Adjoba, parce qu'elle comptait.
-
-La maîtresse Adjoba avait cinquante-deux ans et enseignait le CE2 depuis dix-sept ans dans cette même école Sainte-Marie, dans cette même classe aux murs jaunis, avec ce même tableau noir qui avait la fâcheuse habitude de boire la craie. Elle avait l'habitude des enfants — leurs façons de s'assembler, de se séparer, de former ces amitiés foudroyantes qui duraient une récréation ou une vie entière selon la chance qu'ils avaient.
-
-Elle avait vu Sara Mensah depuis le premier jour de rentrée. Impossible de ne pas la voir — la petite qui entrait dans une pièce comme si elle était déjà attendue. Et elle avait vu Elias Kouamé, qui lui, entrait dans les pièces comme s'il espérait ne pas déranger. Elle avait fait le lien entre eux instinctivement — pas parce qu'elle s'y connaissait en destinée, mais parce qu'après dix-sept ans d'enfants, elle reconnaissait les complémentaires. Les morceaux qui s'encadraient.
-
-Ce soir-là, dans la salle des professeurs, elle dit à sa collègue de CP : *Ces deux-là, le petit Kouamé et la petite Mensah, ils se sont trouvés aujourd'hui. Tu verras, ça durera.*
-
-Sa collègue de CP haussa les épaules et reboucha son stylo rouge.
-
-La maîtresse Adjoba avait raison, comme elle avait presque toujours raison sur les choses qui comptaient vraiment.
+Ils avaient huit ans. Ils parlaient comme s'ils en avaient bien plus.
 
 ---
 
-Un jour de novembre, sous une pluie courte et violente qui avait éclaté sans prévenir, ils s'étaient réfugiés sous l'auvent de la boutique du cordonnier Soro, un vieux monsieur qui cousait des sandales toute la journée en mâchonnant une tige de coton. La pluie frappait le sol de latérite et en faisait remonter une odeur de terre mouillée — cette odeur particulière aux pluies tropicales, qui était en réalité l'odeur de l'essence de la terre libérée par les premières gouttes, un mot que ni Sara ni Elias ne connaissaient encore mais qu'ils auraient pu inventer.
+Un jour de novembre, la pluie éclata sans prévenir.
 
-Ils étaient restés sous cet auvent vingt minutes, debout côte à côte sans se toucher, à regarder la pluie faire des rivières rouges dans la rue. Le cordonnier Soro ne les avait pas chassés. Il avait juste mâché sa tige de coton plus lentement en les regardant du coin de l'œil.
+Ils se réfugièrent sous l'auvent du cordonnier Soro — un vieux monsieur qui cousait des sandales en mâchonnant une tige de coton. La pluie frappait le sol rouge et en faisait remonter cette odeur particulière aux tropiques, l'essence de la terre libérée par les premières gouttes. Ils restèrent debout côte à côte vingt minutes, à regarder l'eau creuser des rivières dans la rue.
 
-— J'aime la pluie, avait dit Sara.
+— J'aime la pluie, dit Sara.
 
-— Moi aussi, avait dit Elias.
+— Moi aussi.
 
-— Mais après t'as les pieds sales à cause de la boue.
+— Mais après t'as les pieds sales.
 
 — Ouais.
 
@@ -294,7 +270,7 @@ Ils étaient restés sous cet auvent vingt minutes, debout côte à côte sans s
 
 — Ouais.
 
-Un silence passa. Dans la rue, l'eau courait en minces rivières rouges qui serpentaient entre les pavés descellés. Une femme avec un grand bassin sur la tête trottinait en regardant ses pieds. Un chien errant avait trouvé refuge sous l'escalier de la maison d'en face, et il regardait la pluie avec la philosophie tranquille des animaux qui savent que la patience est une vertu gratuite.
+Le cordonnier Soro mâcha sa tige de coton plus lentement.
 
 — Elias, dit Sara.
 
@@ -302,101 +278,101 @@ Un silence passa. Dans la rue, l'eau courait en minces rivières rouges qui serp
 
 — C'est quoi ton dessin préféré que t'as fait ?
 
-Il réfléchit sérieusement. — Y a un soir j'ai dessiné ma mère en train de plier le linge sur la terrasse. Le soir, avec les lumières de la ville derrière. J'avais mis des heures.
+Il réfléchit sérieusement. — Y a un soir j'ai dessiné ma mère qui pliait le linge sur la terrasse. Le soir, avec les lumières de la ville derrière. J'avais mis des heures.
 
 — Tu me le montreras ?
 
-— C'est dans le premier cahier. Celui à couverture rouge. Je t'apporte demain.
+— C'est dans le premier cahier, couverture rouge. Je t'apporte demain.
 
-Sara hocha la tête avec satisfaction. Elle aimait quand les choses étaient décidées proprement, avec un délai et une promesse clairs.
+Sara hocha la tête avec satisfaction. Elle aimait quand les choses étaient décidées proprement.
 
-— Moi mon truc préféré, dit-elle, c'est chanter. Mais pas pour les autres. Enfin, aussi pour les autres. Mais surtout pour moi. Comme si les mots sortaient et prenaient de la place dans l'air.
+— Moi mon truc préféré, dit-elle, c'est chanter. Pas pour les autres. Enfin, aussi pour les autres. Mais surtout pour moi. Comme si les mots sortaient et prenaient de la place dans l'air.
 
-— C'est un peu comme dessiner, dit Elias.
+— C'est un peu comme dessiner.
 
 — C'est pareil ?
 
 — Un peu. Les deux ça met les choses dehors.
 
-Sara considéra ça. — Ouais. Les choses dehors.
+*Les choses dehors*, pensa Sara. Elle répéta ça dans sa tête. Ça avait quelque chose de juste.
 
-La pluie avait cessé aussi brusquement qu'elle avait commencé. Le ciel avait rendu son bleu, lavé, presque violent. Et ils avaient repris leur route, les sandales claquant dans les flaques rouges, jusqu'à l'endroit où leur chemin se séparait — Sara à gauche vers la rue des cocotiers, Elias à droite vers la troisième maison après la boutique de Tanty Adjoua.
+La pluie s'arrêta aussi brusquement qu'elle avait commencé. Le ciel rendit son bleu, lavé, presque violent. Ils reprirent leur route, les sandales claquant dans les flaques rouges.
 
-— À demain, avait dit Sara.
+À la séparation au bout de la rue des cocotiers :
 
-— À demain, avait dit Elias.
+— À demain, dit Sara.
 
-Et ils s'étaient séparés sans savoir — comment auraient-ils pu le savoir, ils avaient huit ans — que ces vingt-deux minutes quotidiennes allaient devenir l'un des repères fixes de leur vie, l'une de ces choses dont on ne mesure la valeur qu'une fois qu'elles ont disparu.
+— À demain, dit Elias.
+
+Ils ne savaient pas — comment auraient-ils pu savoir, ils avaient huit ans — que ces vingt-deux minutes allaient devenir l'un des repères fixes de leur vie. Une de ces choses qu'on ne mesure qu'une fois qu'elles ont disparu.
 
 ---
 
-### Chapitre 2 — Derrière les regards
+## Chapitre 2 — Derrière les regards
 
-Quatre ans plus tard, Sara Mensah avait treize ans et elle le savait.
+Quatre ans plus tard, Sara Mensah avait treize ans et les billets arrivaient.
 
-Elle le savait de cette façon particulière dont on sait les choses qui concernent son propre corps — pas avec une arrogance declarée, pas avec la vanité vulgaire qu'on voit parfois chez les filles qui ont compris trop tôt qu'elles étaient jolies. Elle le savait comme on sait qu'il fait chaud, ou qu'on a faim. C'était un fait. Les regards s'arrêtaient sur elle. Les conversations se taisaient légèrement quand elle entrait. Les garçons trouvaient des raisons de passer près de son banc, de lui emprunter un stylo, de lui poser des questions dont ils connaissaient déjà la réponse.
+Pliés en quatre, transmis par des intermédiaires — la petite Fatoumata de 5ème A, le cousin du cousin de quelqu'un. Sara les lisait, les rangeait dans l'étui de son crayon rose, et n'y répondait généralement pas. Pas par cruauté. Par instinct : elle sentait confusément que le silence maintenait quelque chose que les mots auraient défait.
 
-Au Collège Moderne de Yopougon — un grand bâtiment de parpaings peints en blanc qui avait vu ses meilleures années dans les années quatre-vingt-dix — Sara Mensah était une présence. Pas encore une légende, ça viendrait plus tard. Mais une présence.
+C'est agréable, pensait-elle parfois en feuilletant les billets le soir dans sa chambre. *Que les gens t'aiment bien comme ça, de loin.*
 
-Elle était en 4ème B, dans une classe de quarante-deux élèves serrés sur des bancs trop petits pour leurs corps en train de changer. Elle s'asseyait au troisième rang, côté fenêtre, pour voir la cour et être vue depuis la cour — une stratégie qu'elle n'aurait pas pu formuler mais qu'elle appliquait instinctivement depuis septembre.
-
-Les billets arrivaient par les intermédiaires habituels — la petite Fatoumata de 5ème A qui passait pendant la récré, le cousin du cousin de Daouda qui tendait un papier plié en quatre avec l'air de ne pas savoir ce qu'il y avait dedans. Sara lisait les billets, les pliait soigneusement, les rangeait dans l'étui de son crayon rose, et n'y répondait généralement pas. Pas par cruauté. Par un instinct de conservation qu'elle n'aurait pas su nommer — elle sentait, confusément, que le pouvoir qu'elle avait sur ces garçons qui lui écrivaient des mots trop grands pour leur âge était un pouvoir qui ne se maintenait que dans le silence. Répondre aurait changé quelque chose. Garder le silence maintenait l'équilibre.
-
-*C'est agréable*, pensait-elle parfois en feuilletant les billets le soir dans sa chambre. *Que les gens t'aiment bien comme ça, de loin. C'est agréable.*
+Au Collège Moderne de Yopougon, Sara Mensah était une présence. Elle s'asseyait au troisième rang côté fenêtre — pour voir la cour et être vue depuis la cour, une stratégie qu'elle n'aurait pas pu formuler mais qu'elle appliquait depuis septembre.
 
 Elias, lui, était en 4ème C.
 
-Ils ne se voyaient plus vingt-deux minutes par jour comme à l'école primaire — le collège avait ses propres rythmes, ses propres géographies, et la 4ème B et la 4ème C n'avaient pas les mêmes récréations. Mais ils faisaient toujours le chemin du retour ensemble, et c'était encore leur territoire. Vingt-deux minutes de route principale, puis la séparation au bout de la rue des cocotiers.
+Ils ne se voyaient plus vingt-deux minutes par jour. Le collège avait sa propre géographie, la 4ème B et la 4ème C n'avaient pas les mêmes récréations. Mais ils faisaient toujours le chemin du retour ensemble, et c'était encore leur territoire. Le même pilier électrique ébréché, la même route principale, les mêmes vingt-deux minutes.
 
-Elias avait treize ans aussi. Il avait grandi — pas autant que certains garçons de sa classe qui semblaient avoir décidé de pousser à toute vitesse comme si la puberté était un concours — mais il était moins petit, moins facilement ignoré. Il avait gardé son cahier quadrillé, ou plutôt il en était à son cinquième — il les remplissait et les rangeait dans une boîte sous son lit. Il dessinait toujours, mais ses dessins avaient changé. Ils étaient plus précis, plus intentionnels. Il avait commencé à lire des livres sur la perspective, empruntés à la bibliothèque du collège, et ses représentations de l'espace avaient quelque chose de plus sérieux maintenant.
+Elias avait grandi autrement que les autres garçons de sa classe — moins vite, moins bruyamment. Mais il y avait quelque chose de plus précis dans son regard depuis qu'il lisait des livres sur la perspective, quelque chose qui avait commencé à faire la différence dans ses dessins.
 
 Il observait Sara changer.
 
-Il ne pouvait pas s'en empêcher. Ce n'était pas du désir — il n'avait pas encore tout à fait les mots pour ça, ou plutôt les mots qu'il avait étaient ceux de *l'ami qui regarde*, pas ceux de quelque chose d'autre. Mais il voyait bien quelque chose. La façon dont elle gérait les billets avec une désinvolture calculée. La façon dont elle choisissait ses tenues le matin avec plus de soin qu'avant, même si le règlement du collège imposait l'uniforme bleu — mais dans les détails, les chaussettes, les boucles d'oreilles, le soin apporté aux nattes, il y avait une intention nouvelle.
+Il ne pouvait pas s'en empêcher. Pas du désir — il n'avait pas encore tout à fait les mots pour ça. Mais il voyait bien. La façon dont elle gérait les billets avec une désinvolture calculée. La façon dont elle était devenue quelque chose au collège — centrale, visible, commentée. Et il se demandait, sans anxiété mais avec cette honnêteté tranquille qui était la sienne, si l'amitié tenait encore dans tout ça.
 
-Il voyait bien comment elle était devenue quelque chose au collège. Quelque chose de visible, de central. Et il se demandait, sans anxiété particulière mais avec cette honnêteté tranquille qui était la sienne, si lui il était encore là dans tout ça — si l'amitié tenait vraiment, ou si elle se diluait doucement dans la nouvelle géographie de Sara.
+Chaque soir, Sara l'attendait au pilier ébréché.
 
-Mais chaque soir, au bout de la rue principale, elle l'attendait au pilier électrique ébréché qui marquait la sortie du quartier scolaire, et ils prenaient leur chemin ensemble. Et pendant ces vingt-deux minutes, Sara était simplement Sara — pas la fille des billets, pas la présence dans la classe. Juste Sara qui parlait trop vite et mangeait parfois ses mots quand elle était excitée, Sara qui pouvait passer de *les garçons me fatiguent* à *raconte-moi ce que t'as dessiné aujourd'hui* en l'espace d'une inspiration.
+Et pendant ces vingt-deux minutes, elle était simplement Sara — pas la fille des billets. Elle parlait trop vite et mangeait ses mots quand elle était excitée. Elle passait de *les garçons me fatiguent* à *raconte-moi ce que t'as dessiné aujourd'hui* en une seule respiration.
 
-C'est en mars de cette année-là qu'Arnaud apparut.
+C'était suffisant. C'était tout.
 
-Arnaud Séka avait seize ans. Son père dirigeait l'un des lycées privés du plateau — un homme important, connu, dont le nom revenait souvent dans les conversations des adultes. Arnaud lui-même était le genre de garçon qui avait grandi dans la conscience de ce que son père représentait, et cela lui avait donné une assurance qui n'était pas exactement de l'arrogance — c'était plus subtil que ça, comme une assurance fondée sur la géographie plutôt que sur les mérites personnels. Il habitait le monde comme s'il y avait déjà payé sa place.
+---
 
-Il n'était pas au collège de Yopougon. Il passait chercher son cousin Brice après les cours, et c'est comme ça qu'il avait vu Sara.
+En mars de cette année-là, Arnaud Séka apparut.
 
-Elle sortait justement avec Aminata et Kenza — ses deux amies depuis l'école primaire, qui étaient avec elle dans cette 4ème B comme elles l'avaient été dans toutes les classes depuis le CE2. Il l'avait regardée traverser la rue, son cartable sur une épaule, ses nattes relevées en chignon ce jour-là avec une pique dorée que sa mère lui avait offerte pour son anniversaire. Il l'avait regardée rire à quelque chose qu'Aminata venait de dire, et ce rire — spontané, la tête légèrement rejetée en arrière, une chose totalement non calculée — avait fait quelque chose dans sa poitrine.
+Seize ans, fils d'un directeur de lycée au Plateau, une montre et une façon d'habiter le monde comme s'il y avait déjà payé sa place. Il n'était pas au collège de Yopougon — il venait chercher son cousin Brice, et c'est comme ça qu'il avait vu Sara sortir avec Aminata et Kenza un jeudi après-midi, son cartable sur une épaule, les nattes en chignon avec une pique dorée, riant à quelque chose qu'Aminata venait de dire.
 
-Le lendemain, il était revenu. Prétextant encore Brice.
+Ce rire — tête légèrement renversée, chose totalement non calculée — lui avait fait quelque chose dans la poitrine.
+
+Le lendemain, il était revenu. Prétextant Brice.
 
 Le surlendemain, il avait trouvé le moyen de se présenter.
 
-Sara avait été flattée. Elle ne s'en cachait pas — ni à elle-même ni à Aminata et Kenza qui avaient immédiatement analysé la situation avec l'enthousiasme de leurs treize ans.
+Sara avait été flattée. Elle ne s'en cachait pas.
 
-*Il est grand. Il est beau. Son père c'est le directeur du lycée Plateau. Il a une montre.*
+— Il est grand, il est beau, son père c'est le directeur du lycée Plateau, rapportèrent Aminata et Kenza avec l'enthousiasme de leurs treize ans.
 
-Cette dernière précision venait de Kenza, avec un sérieux total.
+— Il a une montre, ajouta Kenza avec un sérieux total.
 
-Arnaud avait une façon de regarder Sara qui était différente des billets pliés en quatre du troisième rang. Les billets regardaient une idée de Sara. Arnaud, lui, regardait Sara elle-même — ou du moins c'est ce qu'il lui semblait. Il l'écoutait parler. Il se souvenait de ce qu'elle avait dit la dernière fois. Il amenait des petites attentions — une mangue achetée au passage, une fois une bouteille de bissap froid qu'il avait tenue froide dans le sac de son scooter — sans en faire tout un événement, avec cette désinvolture des garçons qui savent comment offrir des choses.
+Arnaud avait une façon de regarder Sara différente des billets pliés. Les billets regardaient une idée de Sara. Arnaud, lui, semblait regarder Sara elle-même. Il l'écoutait parler. Il se souvenait de ce qu'elle avait dit la dernière fois. Il amenait de petites attentions sans en faire tout un événement — une mangue, une bouteille de bissap froid restée froide dans le sac de son scooter.
 
-Elle lui parla d'Elias un soir, presque sans y penser.
+Sara lui parla d'Elias un soir, presque sans y penser.
 
-— Mon ami Elias dit qu'il te connaît de vue, dit-elle. Il dit que tu vas au même cybercafé que lui le samedi.
+— Mon ami Elias dit qu'il te connaît de vue. Il dit que tu vas au même cybercafé que lui le samedi.
 
 Arnaud haussa les sourcils. — Elias ? Le petit maigre avec les cahiers ?
 
 Sara fronça légèrement les sourcils. — C'est mon meilleur ami.
 
-— Ah bon, dit Arnaud. L'expression de son visage était neutre, mais quelque chose dans le ton de sa voix disait qu'il classait Elias dans une catégorie qui n'interférerait pas vraiment avec ses projets.
+— Ah bon, dit Arnaud. Le ton disait qu'il classait Elias dans une catégorie qui n'interférerait pas avec ses projets.
 
-Elias, lui, n'avait pas dit grand-chose d'Arnaud au début. Il avait juste observé. Il était doué pour ça — observer sans paraître observer, voir les détails que les autres ne voyaient pas parce qu'ils ne prenaient pas le temps de regarder vraiment.
+Elias, lui, n'avait pas dit grand-chose d'Arnaud. Il avait juste observé.
 
-Ce qu'Elias avait vu, c'est qu'Arnaud Séka venait chercher son cousin Brice les lundis, mercredis et vendredis. Mais les mardis et jeudis, quand Brice n'était pas au collège de Yopougon, Arnaud était parfois encore là, de l'autre côté de la rue, à parler avec une fille de Terminale qui s'appelait Djeneba et qui avait des cheveux longs et des yeux en amande. Il ne l'avait pas vu les tenir par la main. Mais il les avait vus rire ensemble d'une façon qui n'avait rien de l'indifférence.
+Ce qu'il avait vu : Arnaud venait chercher Brice les lundis, mercredis et vendredis. Mais les mardis et jeudis, quand Brice n'était pas là, Arnaud était parfois encore de l'autre côté de la rue, à parler avec une fille de Terminale qui s'appelait Djeneba — cheveux longs, yeux en amande. Il ne les avait pas vu se tenir par la main. Mais il les avait vus rire ensemble d'une façon qui n'avait rien de l'indifférence.
 
-Il avait attendu le bon moment pour en parler à Sara.
+Il attendit le bon moment.
 
-Ce bon moment arriva un soir de chemin du retour, un jeudi, alors que Sara était dans une humeur particulièrement légère — elle avait eu dix-sept en rédaction française et la maîtresse Coulibaly avait lu son texte à voix haute en classe.
+Il arriva un jeudi soir. Sara était dans une humeur légère — dix-sept en rédaction française, la maîtresse Coulibaly avait lu son texte à voix haute.
 
-— Arnaud était encore là cet après-midi, dit Sara. Il m'a donné son numéro de portable.
+— Arnaud était encore là cet après-midi, dit Sara. Il m'a donné son numéro.
 
 — C'est bien, dit Elias.
 
@@ -404,19 +380,19 @@ Ce bon moment arriva un soir de chemin du retour, un jeudi, alors que Sara étai
 
 Il la regarda. — J'ai pas dit *mais*.
 
-— T'as fait la voix du *mais*. Tu fais la voix du *mais* quand tu dis quelque chose et que t'en penses autre chose.
+— T'as fait la voix du *mais*. Tu fais ça quand tu penses autre chose.
 
-Elias soupira. Il n'avait pas envie d'avoir cette conversation, mais il ne savait pas mentir à Sara — il avait essayé quelquefois, pour des petites choses, et à chaque fois elle avait vu. Elle avait ce don particulier pour les voir à travers lui, comme si leur amitié lui avait donné un accès à une transparence qu'il n'avait avec personne d'autre.
+Elias soupira. Il ne savait pas mentir à Sara. Elle voyait à travers lui depuis les huit ans.
 
-— J'ai vu Arnaud parler avec Djeneba de Terminale, dit-il. Le mardi. Et le jeudi. D'une façon... qui ressemblait pas à rien.
+— J'ai vu Arnaud parler avec Djeneba de Terminale. Le mardi. Et le jeudi. D'une façon qui ressemblait pas à rien.
 
-Sara ne dit rien pendant quelques pas. La rue principale était encombrée à cette heure — les retours de marché, les voitures brinquebalantes, une moto qui grillait un feu rouge en klaxonnant. La poussière rouge de la saison sèche flottait dans l'air chaud.
+Sara ne dit rien pendant quelques pas. La route principale à cette heure — retours de marché, motos, la poussière de la saison sèche dans l'air chaud.
 
-— T'as vu comment, exactement ? dit Sara finalement.
+— T'as vu comment exactement ? dit-elle finalement.
 
-Elias décrivit ce qu'il avait vu. Sobrement, sans dramatiser. Les mardis et jeudis. La façon de rire. Ce qu'il avait et n'avait pas vu.
+Il décrivit. Sobrement. Les jours, la façon de rire, ce qu'il avait et n'avait pas vu.
 
-Quand il eut fini, Sara marchait plus vite. Il s'en aperçut parce que leurs pas n'étaient plus synchronisés.
+Sara marchait plus vite. Leurs pas n'étaient plus synchronisés.
 
 — T'es jaloux, dit-elle. Sa voix était plate.
 
@@ -426,7 +402,7 @@ Quand il eut fini, Sara marchait plus vite. Il s'en aperçut parce que leurs pas
 
 — Ce que j'aime ou j'aime pas, ça change pas ce que j'ai vu.
 
-— T'as *cru* voir. C'est pas pareil.
+— T'as *cru* voir.
 
 — D'accord, dit Elias.
 
@@ -434,35 +410,35 @@ Quand il eut fini, Sara marchait plus vite. Il s'en aperçut parce que leurs pas
 
 — Comme ça comment ?
 
-— Comme si tu pensais que t'as raison et que tu fais juste semblant d'accepter ce que je dis.
+— Comme si tu pensais avoir raison et que tu fais juste semblant d'accepter.
 
 Elias s'arrêta. Sara s'arrêta aussi, trois pas plus loin, et se retourna.
 
-Ils se regardèrent. Dans la lumière chaude du soir abidjanais, avec la poussière rouge autour d'eux et le bruit des motos en fond sonore, ils se regardèrent vraiment — de cette façon qu'ils avaient depuis les huit ans contre le mur de la classe de CE2, ce regard direct qui n'était pas agressif mais qui n'esquivait rien.
+Ils se regardèrent — de cette façon qu'ils avaient depuis les huit ans contre le mur de CE2, le regard direct qui n'esquivait rien.
 
 — Je suis ton ami, dit Elias. Rien d'autre. Et parce que je suis ton ami, je te dis ce que j'ai vu. Ce que tu en fais c'est toi qui décides.
 
-Sara ouvrit la bouche, la referma. Il y avait quelque chose dans ses yeux — pas de la colère exactement, quelque chose de plus compliqué. Peut-être de la peur que ce qu'il avait dit soit vrai. Peut-être de la honte d'avoir pensé *jaloux* si vite. Peut-être autre chose encore.
+Sara ouvrit la bouche. La referma. Il y avait quelque chose dans ses yeux — pas de la colère. Peut-être la peur que ce qu'il avait dit soit vrai.
 
 — Je rentre, dit-elle.
 
-Elle repartit. Pas en courant, pas en tempête — Sara ne faisait jamais de scènes, c'était une forme de fierté chez elle. Mais d'un pas résolu qui disait *cette conversation est terminée pour ce soir*.
+Elle repartit. Pas en tempête — Sara ne faisait jamais de scènes. D'un pas résolu qui disait *cette conversation est terminée pour ce soir*.
 
 Elias la regarda s'éloigner jusqu'au bout de la rue des cocotiers.
 
+---
+
 Le silence entre eux dura onze jours.
 
-Onze jours sans se croiser au pilier électrique ébréché, sans marcher sur la route principale. Sara qui passait par les ruelles derrière le marché — celles qui sentaient les ordures, ce qui mesurait à sa façon la profondeur de la rupture. Elias qui prenait le chemin seul, son cahier sous le bras, ses dessins plus sombres ces jours-là, moins de lumière dans les ciels qu'il esquissait.
+Onze jours sans se croiser au pilier ébréché. Sara prenait les ruelles derrière le marché — celles qui sentaient les ordures, ce qui mesurait à sa façon la profondeur de la rupture.
 
-Il avait eu raison, bien sûr. Elias avait presque toujours raison sur les choses qu'il observait, c'était son don et parfois son fardeau. Arnaud Séka fréquentait effectivement Djeneba de Terminale, et lorsque Sara l'avait compris — non pas parce qu'Elias le lui avait dit, mais parce que Kenza lui avait transmis l'information avec la précision impitoyable des meilleures amies — elle avait senti quelque chose se déposer en elle comme une pierre froide.
+Il avait eu raison, bien sûr. Kenza lui avait transmis l'information avec la précision impitoyable des meilleures amies : Arnaud Séka fréquentait effectivement Djeneba de Terminale. Sara avait senti quelque chose se déposer en elle comme une pierre froide. Pas du chagrin. Pas vraiment. Mais cette humiliation tranquille : *il m'a traitée comme une option*.
 
-Pas du chagrin, exactement. Elle avait treize ans, elle n'était pas amoureuse d'Arnaud — pas vraiment, pas encore. Mais une forme d'humiliation tranquille. *Il m'a traitée comme si j'étais une option. Une option parmi d'autres.*
+Elle rangea le numéro de portable au fond d'un tiroir et ne répondit plus à ses messages.
 
-Elle avait rangé le numéro de portable qu'il lui avait donné au fond d'un tiroir et n'avait plus répondu à ses messages.
+Le douzième soir, elle était au pilier.
 
-Le douzième soir, elle était au pilier électrique ébréché.
-
-Elias arriva. Ils marchèrent en silence pendant quelques minutes — la route principale avec ses bruits habituels, la chaleur qui commençait à baisser doucement vers le soir, l'odeur des beignets frits d'une vendeuse installée sur le bord de la route.
+Elias arriva. Ils marchèrent en silence.
 
 — T'avais raison, dit Sara.
 
@@ -472,17 +448,13 @@ Elias arriva. Ils marchèrent en silence pendant quelques minutes — la route p
 
 — T'aurais préféré que je mente ?
 
-Sara souffla. — Non.
-
-Ils marchèrent encore un moment.
-
-— T'aurais dû me dire *je suis désolé* quand même, dit Sara. Même si t'avais raison. Des fois on peut avoir raison et dire *je suis désolé* quand même.
+— Non. — Un silence. — T'aurais dû dire *je suis désolé* quand même. Même si t'avais raison. Des fois on peut avoir raison et dire *je suis désolé* quand même.
 
 Elias réfléchit à ça.
 
 — T'as raison, dit-il. Je suis désolé que ce soit vrai.
 
-Sara le regarda de côté. Quelque chose dans sa façon de dire ça — cette nuance, *désolé que ce soit vrai*, pas *désolé d'avoir raison*, pas *désolé pour toi*, mais *désolé que la vérité soit décevante* — quelque chose dans cette façon de dire ça la toucha différemment que tout ce qu'elle avait imaginé pendant les onze jours de silence.
+Sara le regarda de côté. Cette nuance — *désolé que ce soit vrai*, pas *désolé d'avoir raison* — quelque chose dans cette façon de dire ça la toucha différemment que tout ce qu'elle avait imaginé pendant les onze jours.
 
 — T'es vraiment bizarre, dit-elle.
 
@@ -490,109 +462,63 @@ Sara le regarda de côté. Quelque chose dans sa façon de dire ça — cette nu
 
 — C'est encore vrai.
 
-Ils étaient arrivés au carrefour où leurs chemins se séparaient. La lumière du soir était orange et douce sur les toits de tôle. Un enfant jouait au foot tout seul avec une bouteille en plastique dans la ruelle en face.
+Ils étaient arrivés au carrefour. La lumière du soir orange sur les toits de tôle. Un enfant jouait au foot tout seul avec une bouteille en plastique.
 
 — On est amis ? dit Sara.
 
-Ce n'était pas la même question qu'à huit ans. C'était plus lourd maintenant, chargé des onze jours de silence, de tout ce qui avait failli se briser.
+Ce n'était pas la même question qu'à huit ans. C'était plus lourd maintenant — chargé des onze jours, de tout ce qui avait failli se briser.
 
 — On l'a toujours été, dit Elias. Et on le sera encore demain.
 
-Sara hocha la tête une fois, brièvement. Puis elle se retourna et prit la rue des cocotiers.
-
-Elias reprit sa route.
-
-Il y avait dans ce trajet solitaire quelque chose de mélancolique et de propre à la fois — cette légèreté d'avoir dit la vérité et d'avoir été entendu même à travers la douleur qu'elle causait. Il n'avait pas cherché à avoir raison. Il avait cherché à protéger Sara, et Sara le savait, même si elle avait d'abord traduit ça en jalousie parce que c'était plus simple à entendre.
-
-Le soir tombait sur Yopougon avec sa lenteur tropicale. Les toits de tôle captaient les dernières lumières du soleil et les renvoyaient en reflets cuivrés. Dans les cours, les femmes appelaient les enfants pour le dîner. Des odeurs de riz, d'huile, de poisson grillé flottaient dans l'air épaissi.
-
-Elias rentra chez lui. Sa mère était dans la cuisine. Il s'assit à la table, ouvrit son cahier, et dessina.
-
-Ce soir-là il dessina la rue au moment de la séparation — deux silhouettes à un carrefour, l'une qui s'en allait vers la gauche, l'autre qui restait immobile encore une seconde. Il ne décida pas de mettre quelque chose dans ce dessin. Mais ce qui en ressortit avait quelque chose d'une promesse : les deux silhouettes orientées dans des directions différentes, mais leurs ombres, étrangement, convergeaient vers le même point au sol.
-
-Leur amitié avait traversé sa première vraie tempête. Elle en était ressortie différente — pas diminuée, non, mais marquée, comme le bois qu'on trempe dans l'eau et qui en ressort plus dur. Il y avait maintenant entre eux quelque chose qui savait qu'il pouvait résister. Une amitié qui avait été testée et qui avait tenu est une amitié qui porte en elle sa propre preuve.
-
-Ni l'un ni l'autre ne le formulait ainsi. Ils avaient treize ans.
-
-Mais le corps sait ce que les mots ne savent pas encore dire.
+Sara hocha la tête une fois. Puis elle prit la rue des cocotiers.
 
 ---
 
-Les mois qui suivirent avaient leur propre texture. Le collège tournait à son rythme — les interros surprise, les récitations de poèmes que personne n'avait appris, les fêtes du collège où quelqu'un apportait toujours une petite enceinte Bluetooth et où on dansait dans la salle de sport jusqu'à ce qu'un surveillant frappe à la porte.
+Il y eut cette nuit de novembre, en troisième. Un vendredi soir, tard. Sara lui envoya un message : *tu dors ?*
 
-C'est à cette époque qu'Elias commença à dessiner Sara de façon différente.
+Il s'était réveillé. *Non. Qu'est-ce qui se passe ?*
 
-Avant, elle était dans ses dessins comme elle était dans la réalité — au centre, en mouvement, reconnaissable depuis loin. Maintenant il la dessinait de profil, souvent de dos, comme quelqu'un qui regarde au loin. Ses dessins avaient ce changement, et lui ne le remarquait pas. Il dessinait ce qu'il voyait, et ce qu'il voyait maintenant dans Sara c'était cette façon qu'elle avait parfois de s'arrêter, même au milieu d'une conversation, même au milieu d'un rire, et de regarder quelque part que les autres ne voyaient pas. Comme si elle cherchait quelque chose. Comme si elle attendait quelque chose qu'elle n'aurait pas su nommer.
+Les bulles de saisie apparaissaient et disparaissaient — il l'imaginait commencer à écrire et tout effacer, trois fois au moins.
 
-Il ne lui dit jamais. Ce n'était pas le genre de chose qu'on dit.
+Puis : *Je sais pas. J'ai l'impression que les gens m'aiment parce que je suis belle. Pas pour autre chose. Comme si le reste existait pas.*
 
-Sara fleurissait. C'est le mot qui venait naturellement quand on la regardait à quatorze ans — cette impression d'une chose qui déployait ses pétales avec une application naturelle, sans forcer, comme si ça devait être ainsi. Elle avait pris quelques centimètres, ses traits s'étaient affinés, et la grâce particulière de son corps en mouvement — cette façon qu'elle avait toujours eue de traverser l'espace comme si elle y appartenait — était devenue plus déclarée, plus difficile à ignorer.
+Elias tint son téléphone dans le noir, la veilleuse orange sur le bureau.
 
-Elle le savait. *Et alors ?* se disait-elle parfois le soir devant le miroir de sa chambre, pas avec arrogance mais avec une curiosité tranquille. *Je suis belle. C'est bien. Ça m'a l'air utile.*
-
-Elias, lui, avait grandi autrement. Il y avait en lui quelque chose qui se consolidait — une qualité d'être, une manière de prendre de la place sans jamais l'occuper bruyamment. Ses dessins avaient changé. Il avait arrêté de représenter les choses telles qu'elles étaient pour commencer à les représenter telles qu'elles se sentaient — un peu flous sur les bords, plus denses au centre, avec ces ombres qui n'existaient pas dans la réalité physique mais qui disaient quelque chose de vrai sur l'atmosphère des lieux.
-
-Sa maîtresse d'arts plastiques, une femme du nom de Mme Touré, lui avait dit un mardi que ses dessins avaient une âme. Il était rentré ce soir-là et n'avait pas mangé — pas parce qu'il était triste, mais parce que la phrase lui avait occupé toute la place.
-
-Ce que ni l'un ni l'autre n'aurait pu voir à l'époque — parce que personne ne voit ces choses de l'intérieur, on ne les voit qu'en se retournant — c'est qu'ils formaient déjà quelque chose de rare. Deux personnes qui se connaissaient vraiment. Pas l'image que chacun projetait, pas le personnage social — la vraie personne, avec ses contradictions et ses silences et ses façons particulières d'être au monde.
-
-Sara savait qu'Elias pleurait parfois quand il lisait certains livres, et qu'il n'en parlait à personne d'autre. Elle savait qu'il avait peur du noir — pas des adultes dans le noir, mais du noir lui-même, ce vide sans fond — et qu'il dormait avec une veilleuse depuis toujours.
-
-Elias savait que Sara, derrière la légèreté et le sourire permanent, avait une façon de se recroqueviller sur elle-même dans les moments difficiles qu'elle n'aurait jamais montrée aux autres. Il savait qu'elle aimait pleure dans sa chambre après avoir dit *ça va* à tout le monde. Il savait que sa beauté, dont elle jouissait avec une vraie joie, lui faisait aussi parfois peur — cette peur qu'on soit là pour l'image et pas pour elle.
-
-Et cette peur-là, elle ne l'avait dite qu'à lui.
-
-Il y avait eu cette nuit de novembre, en troisième — un vendredi soir, tard. Sara lui avait envoyé un message : *tu dors ?*
-
-Il dormait. Il s'était réveillé, avait vu le message, avait répondu : *non. Qu'est-ce qui se passe ?*
-
-Elle avait mis un moment à répondre. Il imaginait les bulles de saisie apparaître et disparaître, cette façon qu'elle avait de commencer à écrire quelque chose et de tout effacer.
-
-*Je sais pas. J'ai l'impression que les gens m'aiment parce que je suis belle. Pas pour autre chose. Comme si le reste existait pas.*
-
-Elias avait tenu son téléphone dans le noir de sa chambre, la veilleuse orange sur le bureau. Il avait réfléchi à ce qu'il allait dire — pas pour être gentil, mais pour être vrai.
-
-*C'est possible que certains soient là pour ça. Mais toi tu sais que t'es autre chose. Le problème c'est pas les gens. Le problème c'est si toi-même tu crois que c'est tout ce que t'es.*
+*C'est possible que certains soient là pour ça. Mais toi tu sais que t'es autre chose. Le problème c'est pas les gens. C'est si toi-même tu crois que c'est tout ce que t'es.*
 
 Un long silence. Puis : *Comment tu sais que je suis autre chose ?*
 
-*Parce que j'ai un premier cahier orange avec ton dessin dedans. Et sur ce dessin t'as pas l'air belle. T'as l'air vivante. C'est différent.*
+*Parce que j'ai un cahier orange avec ton dessin dedans. Et sur ce dessin t'as pas l'air belle. T'as l'air vivante. C'est différent.*
 
-Un très long silence cette fois. Puis juste : *Bonne nuit Elias.*
+Très long silence. Puis : *Bonne nuit Elias.*
 
 *Bonne nuit Sara.*
 
-Il n'en avait jamais parlé le lendemain. Elle non plus. Mais il y avait eu quelque chose dans ses yeux les jours suivants — quelque chose de plus calme, de plus assuré, comme une décision intérieure prise dans la nuit.
+Le lendemain elle avait quelque chose de différent dans les yeux. Quelque chose de plus calme, de plus assuré. Il ne lui demanda pas. Elle ne lui dit pas. Certaines choses n'ont pas besoin d'être dites pour être vraies.
 
 ---
 
-### Chapitre 3 — La lumière et la foi
+## Chapitre 3 — La lumière et la foi
 
-Au lycée Harris de Yopougon, Sara Mensah était LA fille.
+Au lycée Harris, Sara Mensah n'avait plus besoin d'essayer.
 
-C'était une désignation non-officielle, non-proclamée, mais universellement reconnue. L'un de ces consensus silencieux qui se forment dans les écoles comme ils se forment dans les royaumes — sans vote ni décret, simplement par l'accumulation de regards et d'évidences. Sara avait seize ans, elle était en Première L, et son passage dans les couloirs du lycée Harris produisait un effet qui n'était pas de l'ordre de la provocation mais de la présence pure. Elle n'essayait pas de produire cet effet. Elle marchait, parlait, riait, et l'effet se produisait tout seul.
+Elle marchait dans les couloirs et quelque chose se produisait. Les conversations se taisaient légèrement. Les regards s'arrêtaient. Elle avait seize ans, elle était en Première L, et cette façon qu'elle avait depuis toujours d'occuper l'espace — d'être là pleinement, sans s'excuser — était devenue quelque chose d'impossible à ignorer.
 
-Elle avait développé au fil des années une méthode souveraine pour gérer ses admirateurs. Elle n'était pas cruelle — la cruauté était vulgaire, elle l'avait compris très tôt. Elle était simplement précise. Elle savait qui elle daignait encourager et qui elle décourageait avec une politesse si parfaite qu'on ne réalisait qu'après coup avoir été décliné. Elle connaissait la valeur d'un sourire accordé, d'un regard maintenu une seconde de trop, d'une attention feinte. C'était un pouvoir, et elle s'en servait avec la désinvolture de quelqu'un qui n'a jamais connu la faim.
+Elle le savait. *Et alors ?* se disait-elle parfois le soir devant son miroir, avec une curiosité tranquille plutôt que de la vanité. *Je suis belle. C'est bien. Ça m'a l'air utile.*
 
-*Je ne suis pas méchante*, pensait-elle parfois avec une précision tranquille. *Je suis juste honnête sur ce que je veux.*
-
-Ce qu'elle voulait était encore flou. Elle était brillante en classe — ses rédactions, ses dissertations de philosophie étaient lues à voix haute par les professeurs avec une régularité qui avait fini par cesser de la surprendre. Elle aimait les mots, la façon dont ils pouvaient rendre compte du monde ou le tordre légèrement selon l'angle de vision. Elle aimait les conversations qui allaient quelque part, les débats, les idées qui bousculaient. Mais elle aimait aussi les fêtes — il y en avait souvent chez l'un ou l'autre, des after le vendredi soir avec de la musique et des lumières tamisées — et dans ces fêtes elle était à son element d'une façon différente mais tout aussi réelle.
+Ce qui l'intéressait davantage : ses rédactions de philosophie que les profs lisaient à voix haute. Les débats qui allaient quelque part. La façon dont les mots pouvaient rendre compte du monde ou le tordre légèrement selon l'angle. Les fêtes du vendredi soir aussi — la musique, les lumières, l'état particulier d'être au centre d'une énergie collective.
 
 Elias, lui, avait changé.
 
-Pas dans ses façons extérieures — il était toujours le garçon calme avec son cahier, toujours à observer, toujours à écouter plus qu'à parler. Mais il y avait en lui quelque chose de nouveau depuis le début de la terminale, quelque chose que Sara n'identifiait pas tout de suite et qui la rendait légèrement, imperceptiblement, intriguée.
+Sara le remarqua un mardi d'octobre. Ils rentraient du lycée quand un garçon de leur classe leur fit une remarque déplaisante en les croisant — quelque chose sur Sara, le genre de chose qui met l'autre dans la position d'être le témoin silencieux d'une dégradation.
 
-Il était plus posé. Pas d'une façon figée — il n'était pas devenu distant ou froid. Mais d'une façon ancrée, comme si quelque chose en lui avait trouvé son centre de gravité. Un calme qui ne dépendait pas des circonstances extérieures, qui était là aussi bien dans les moments difficiles que dans les moments ordinaires.
+Sara haussa les épaules. Mais elle regarda Elias.
 
-Sara le remarqua un mardi d'octobre.
+Pas de flambée. Pas ces poings qui se serraient involontairement. Il avait juste continué à marcher. Et sur son visage — quelque chose d'ancré, de posé, qu'elle ne lui connaissait pas encore.
 
-Ils marchaient sur la route principale — leur route depuis dix ans maintenant, la même latérite rouge, les mêmes manguiers, les mêmes vendeurs aux mêmes endroits avec les mêmes odeurs. Un garçon de leur lycée venait de leur faire une remarque particulièrement déplaisante en les croisant — quelque chose sur Sara qui avait mis Elias dans cette position impossible d'être le témoin de quelque chose de dégradant dirigé vers son amie.
+— T'es pas énervé ?
 
-Sara avait haussé les épaules avec sa façon habituelle — ce *j'entends mais je ne laisse pas entrer*. Mais elle avait vu comment Elias avait réagi. Pas de colère — pas cette flambée brève qu'elle lui connaissait parfois, pas ces poings qui se serraient involontairement. Il avait juste continué à marcher, et il y avait sur son visage quelque chose qu'elle ne reconnaissait pas.
-
-— T'es pas énervé ? dit-elle.
-
-— Si, dit Elias. Un peu.
+— Si. Un peu.
 
 — Ça se voit pas.
 
@@ -600,7 +526,7 @@ Sara avait haussé les épaules avec sa façon habituelle — ce *j'entends mais
 
 — Différemment comment ?
 
-Il réfléchit. — Je... je lâche les choses plus vite. Je les mets ailleurs.
+— Je... je lâche les choses plus vite. Je les mets ailleurs.
 
 — Où ça, ailleurs ?
 
@@ -610,115 +536,99 @@ Il la regarda. — Tu vas te moquer.
 
 — Je prie, dit Elias. Je mets les choses dans la prière.
 
-Sara le regarda. Puis elle rit — pas un rire méchant, pas du tout. Un rire surpris, comme si quelqu'un venait de lui dire quelque chose à quoi elle ne s'attendait absolument pas.
+Sara rit — pas méchamment. Un rire de surprise totale.
 
 — T'es devenu révérend, ou quoi ?
 
-— Non, dit Elias. Je vais à l'Église Évangélique du Carrefour depuis mars.
+— Non. Je vais à l'Église Évangélique du Carrefour depuis mars.
 
 — Tout seul ?
 
-— Avec mon frère Théodore, au début. Maintenant j'y vais aussi seul.
+— Avec mon frère Théodore, au début. Maintenant tout seul aussi.
 
-Sara l'examina. Elle cherchait les signes de la métamorphose — les habits différents, la Bible sous le bras, je-ne-sais-quoi de changé dans les yeux. Il était toujours Elias. Uniforme beige du lycée Harris légèrement froissé, cahier dans le sac, ses grandes mains qui ne savaient pas toujours quoi faire d'elles-mêmes.
+Elle l'examina. Il était toujours Elias — uniforme beige froissé, cahier dans le sac, ses grandes mains qui ne savaient pas quoi faire d'elles-mêmes. Aucun signe de métamorphose visible.
 
-— Ça te change quelque chose ? demanda-t-elle.
+— Ça te change quelque chose ?
 
-— Beaucoup, dit-il. Mais pas de façon visible, je crois.
+— Beaucoup. Mais pas de façon qu'on remarque de l'extérieur.
 
 — T'as arrêté de faire quoi ?
 
 — Rien que tu ferais remarquer. Je bois moins de Coca, peut-être.
 
-Sara rit encore. Cette fois c'était différent — plus chaud, plus vrai. — T'as arrêté de boire du Coca pour Dieu ?
+Sara rit encore — différemment, plus chaud. — T'as arrêté de boire du Coca pour Dieu ?
 
 — C'est pas exactement ça.
 
 — T'expliques comment alors ?
 
-Il marcha un moment en silence — pas un silence d'hésitation, un silence de quelqu'un qui choisit ses mots avec soin parce qu'il veut dire quelque chose de précis.
+Il marcha un moment en silence — pas d'hésitation. Le silence de quelqu'un qui veut être précis.
 
-— C'est comme si, dit-il lentement, j'avais toujours su que je regardais le monde d'une certaine façon — en dessous, de côté, à travers les choses plutôt que les choses elles-mêmes. Et là j'ai l'impression de comprendre pourquoi je regardais comme ça. Pas que j'ai une réponse à tout. Mais j'ai... une direction. Quelque chose qui dit *par ici*.
+— C'est comme si, dit-il, j'avais toujours su que je regardais le monde d'une certaine façon — en dessous, à travers les choses plutôt que les choses elles-mêmes. Et là j'ai l'impression de comprendre pourquoi je regardais comme ça. J'ai pas toutes les réponses. Mais j'ai une direction. Quelque chose qui dit *par ici*.
 
 Sara ne dit rien pendant quelques secondes.
 
-— C'est bien écrit, dit-elle finalement. T'aurais pu mettre ça dans une rédaction de philo.
+— C'est bien écrit, dit-elle. T'aurais pu mettre ça dans une rédaction de philo.
 
-— Merci.
+— C'est un compliment ?
 
-— C'est un compliment. À ma façon.
+— À ma façon.
 
 Elias sourit. — Je sais. À ta façon.
 
 ---
 
-Leurs chemins avaient commencé à diverger — pas brutalement, pas définitivement, mais avec cette douceur irrémédiable des choses qui changent parce que les gens qui les font changent eux-mêmes.
+Le vendredi soir, pendant qu'Elias allait à l'Église Évangélique du Carrefour — une petite bâtisse au bord du marché de Yopougon-Selmer, chaises en plastique, orgue électronique légèrement désaccordé — Sara était souvent aux fêtes.
 
-Le vendredi soir, Sara était souvent aux fêtes. Pas toutes, elle choisissait avec ce même instinct sélectif qu'elle appliquait à ses admirateurs. Mais elle y était souvent. La musique, les lumières, cet état particulier qu'elle aimait — être au centre d'une énergie collective, sentir les regards, danser avec la conscience de bien danser. Elle n'y prenait pas de drogues, ne buvait pas beaucoup — un verre parfois, par conformité sociale plus que par goût. Elle aimait juste être là, dans cet espace entre les corps et la musique où elle existait différemment.
+Elle n'y prenait pas de drogues, ne buvait pas beaucoup. Elle aimait juste être là, dans cet espace entre les corps et la musique où elle existait différemment. Parfois elle lui envoyait un message tard depuis une fête : *tu dors déjà révérend.* Il répondait le matin : *non j'étais debout mais je lisais. T'as bien dormi ?*
 
-Il y avait une autre façon dont leurs chemins divergeaient qui était plus difficile à voir : ils ne parlaient plus exactement de la même façon. Pas dans le contenu — ils pouvaient encore parler de tout. Mais dans la structure. Sara parlait de plus en plus du futur en termes de trajectoire — *quand j'aurai mon bac, quand je serai à la fac, quand j'aurai un bon poste*. Un futur en escalier, avec des marches claires, une logique ascendante. Elias parlait du futur différemment — avec moins de maîtrise supposée, avec plus d'abandon confiant. *On verra. Dieu guidera. Ça se fera si c'est pour se faire.* Deux grammaires différentes pour le même temps qui venait.
+Des échanges courts. Réguliers. Le fil qui continuait.
 
-Sara trouvait ça vague. Elias trouvait sa façon à elle un peu serrée. Mais ils ne se le disaient pas — parce que ce n'est pas ce qu'on dit quand on est amis depuis dix ans et qu'on aime l'autre pour ce qu'il est, pas pour ce qu'on voudrait qu'il soit.
+Ce qui avait changé entre eux sans qu'ils en parlent : ils n'avaient plus tout à fait la même grammaire pour l'avenir. Sara parlait en escaliers — *quand j'aurai le bac, quand je serai à la fac, quand j'aurai un bon poste.* Elias parlait autrement — *on verra, ça se fera si c'est pour se faire, Dieu guidera.* Deux façons d'entrer dans le même temps qui venait.
 
-Le vendredi soir, Elias était souvent à l'Église Évangélique du Carrefour.
-
-L'Église Évangélique du Carrefour était une petite bâtisse au bord du marché de Yopougon-Selmer, sans grande décoration, avec des chaises en plastique et un orgue électronique légèrement désaccordé. Le pasteur Ahoutou avait la cinquantaine, une voix basse et douce, et une façon de lire les Écritures qui vous donnait l'impression qu'elles avaient été écrites la veille, juste pour aujourd'hui. Elias y avait été entraîné par son frère Théodore un dimanche de mars, par désœuvrement autant que par curiosité, et quelque chose l'avait retenu.
-
-Ce n'était pas l'émotion — il s'en méfiait, de l'émotion religieuse, il avait trop souvent vu des convertis d'un soir qui revenaient à leurs vieilles habitudes le lundi matin. C'était quelque chose de plus structurel. Une façon de voir le monde qui donnait de la cohérence aux choses qu'il avait toujours ressenties mais pas su nommer. La conviction que les choses ne se passaient pas par hasard. Que les détails comptaient. Que la façon dont on regardait les gens, dont on se comportait dans les petits moments, avait une importance qui dépassait les grands gestes.
-
-Il avait commencé à prier le matin, cinq minutes avant de se lever. Pas avec des mots élaborés — juste une présence consciente, une façon de dire *me voilà, j'écoute*. Et dans cette pratique simple, quelque chose s'était ancré en lui progressivement.
-
-Sara le voyait moins les vendredis soir. Elle s'y habituait.
-
-Parfois elle lui envoyait un message tard — *tu dors déjà révérend* — et il répondait le matin — *non j'étais debout mais je lisais. T'as bien dormi ?* Des échanges courts, réguliers. Le fil qui continuait.
+Sara trouvait ça vague. Elias trouvait sa façon à elle un peu serrée. Ils ne se le disaient pas — parce qu'on ne dit pas ces choses quand on est amis depuis dix ans et qu'on aime l'autre pour ce qu'il est.
 
 ---
 
-Ce fut une après-midi de mai, en pleine saison des pluies.
+La pluie de mai éclata un jeudi après-midi alors qu'ils sortaient du lycée ensemble — une de ces sorties fortuites, Elias qui avait eu son dernier cours à la même heure que Sara pour une fois.
 
-Ils étaient sortis du lycée ensemble — une de ces sorties fortuites qui n'avaient pas été planifiées, Elias qui avait eu son dernier cours à la même heure que Sara pour une fois. Le ciel s'était couvert en quelques minutes avec cette rapidité tropicale qui ne laissait jamais le temps de se préparer — l'air qui changeait de texture, devenait lourd et électrique, puis l'obscurité qui montait depuis l'horizon nord avec une efficacité presque militaire.
+L'air changea de texture en deux minutes. Lourd. Électrique. Le ciel vira du bleu au gris-noir depuis l'horizon nord avec une efficacité presque militaire.
 
-Ils avaient couru jusqu'à l'auvent de la boutique de photocopie du quartier — un espace étroit, deux mètres de profondeur sous une tôle ondulée, et la pluie qui tombait comme si quelqu'un avait renversé un océan sur Yopougon. L'eau creusait des rigoles dans la latérite rouge. L'odeur de la terre mouillée montait comme une prière.
+Ils coururent jusqu'à l'auvent de la boutique de photocopie — deux mètres de profondeur sous une tôle ondulée. La pluie frappait le sol rouge, l'odeur de la terre mouillée montait, et le monde autour d'eux disparaissait dans le rideau blanc de l'averse.
 
-Ils étaient debout côte à côte sous l'auvent, leurs épaules presque mais pas tout à fait se touchant. La vendeuse de la boutique de photocopie avait fermé ses volets et disparu à l'intérieur. Il n'y avait qu'eux et la pluie et le bruit magnifique du monde qui se rinçait.
+Debout côte à côte, épaules presque se touchant. La vendeuse avait fermé ses volets.
 
-Sara regardait la pluie tomber. Elle avait les bras croisés, pas par froid — il faisait encore chaud malgré la pluie, c'est la chaleur tropicale qui s'évapore et monte — mais d'une façon qui lui donnait l'air de tenir quelque chose en elle.
-
-— Elias, dit-elle sans le regarder.
+— Elias, dit Sara sans le regarder.
 
 — Oui.
 
 — Tu crois vraiment que Dieu a un plan pour ta vie ?
 
-La question arriva sans préambule, comme ça, dans le bruit de la pluie. Elias ne fut pas surpris — Sara posait toujours ses vraies questions de façon abrupte, comme si elle avait besoin de les lancer vite avant de changer d'avis.
+Elle posait toujours ses vraies questions d'un coup, sans préambule. Comme si elle devait les lancer vite avant de changer d'avis.
 
-Il réfléchit. Pas la réflexion performative de quelqu'un qui veut paraître profond — la vraie, celle qui prend le temps qu'elle prend.
+Il réfléchit vraiment.
 
-— Je crois que Dieu a un plan pour chaque vie, dit-il finalement. Pour la mienne. Et pour la tienne.
+— Je crois que Dieu a un plan pour chaque vie, dit-il. Pour la mienne. Et pour la tienne.
 
-Sara ne dit rien tout de suite. La pluie continuait, dense et régulière.
+Un silence. La pluie dense, régulière.
 
-— Ma vie à moi aussi ? dit-elle. Avec un sourire légèrement moqueur qui ne cachait pas entièrement quelque chose d'autre.
+— Ma vie à moi aussi ? dit-elle, avec ce sourire légèrement moqueur qui ne cachait pas entièrement autre chose.
 
 — Ta vie à toi aussi.
 
-— Même si je vais aux fêtes le vendredi soir au lieu d'aller à l'église ?
+— Même si je vais aux fêtes le vendredi soir ?
 
-— Le plan de Dieu n'est pas une récompense pour les gens qui font tout bien. C'est... c'est plus grand que ça.
+— Le plan de Dieu, c'est pas une récompense pour les gens qui font tout bien. C'est plus grand que ça.
 
-Sara se retourna vers lui. Elle le regardait vraiment maintenant — pas le regard de côté du chemin du retour, mais ce regard direct qu'elle lui réservait dans les moments importants.
+Sara se retourna vers lui. Son regard direct — celui qu'elle lui réservait dans les moments importants.
 
-— Explique, dit-elle.
+— Explique.
 
-— C'est pas comme un contrat, dit Elias. Genre *si tu fais ceci, tu obtiens cela*. C'est plus comme... une histoire que Dieu écrit avec ta vie. Même les parties difficiles. Même les erreurs. Même les choses qui arrivent et que t'as pas voulu. Tout ça fait partie de l'histoire.
+— C'est pas un contrat. Genre *si tu fais ceci, tu obtiens cela*. C'est plus comme... une histoire que Dieu écrit avec ta vie. Même les parties difficiles. Même les erreurs. Même les choses que t'as pas voulues. Tout ça fait partie de l'histoire.
 
-Sara garda les yeux sur lui. Quelque chose bougea dans ses yeux — quelque chose qu'Elias vit mais ne sut pas nommer, une lueur fugace comme un oiseau qui traverse un ciel couvert et disparaît avant qu'on ait eu le temps de le voir vraiment.
+*Même les parties difficiles*, pensa Sara.
 
-*Même les parties difficiles*, pensa-t-elle. *Même les erreurs.*
-
-Elle pensa à sa sœur Cécile qui avait eu un enfant à dix-neuf ans et qui pleurait parfois la nuit. Elle pensa à son père qui était parti au Bénin cinq ans plus tôt pour une affaire et n'était jamais revenu vraiment — il appelait parfois, à Noël, et sa voix avait l'air d'une voix qui venait d'un endroit plus lointain que la géographie.
-
-Elle pensa à toutes les choses en elle qu'elle n'avait dites à personne — même pas à Elias, même pas à Aminata.
+Elle pensa à sa sœur Cécile qui pleurait parfois la nuit. À son père parti au Bénin cinq ans plus tôt pour une affaire et qui n'était jamais vraiment revenu — qui appelait à Noël avec une voix qui venait d'un endroit plus lointain que la géographie. À toutes les choses en elle qu'elle n'avait dites à personne, même pas à lui.
 
 — Tu crois que c'est une belle histoire ? dit-elle. Ta vie.
 
@@ -728,341 +638,165 @@ Sara se retourna vers la pluie.
 
 *Est-ce que ma vie sera une belle histoire ?*
 
-La question était là, dans sa tête, avec cette persistance des questions qu'on ne peut pas chasser parce qu'elles ont touché quelque chose de réel. Elle ne dit rien d'autre. Elias ne dit rien d'autre non plus. Ils restèrent comme ça, sous l'auvent, jusqu'à ce que la pluie s'allège et leur permette de repartir.
+La question resta. Elle ne dit rien d'autre, il ne dit rien d'autre. Ils restèrent là jusqu'à ce que l'averse s'allège.
 
-Ce moment — la pluie, l'auvent, la phrase d'Elias, cette question en elle — Sara allait s'en souvenir des années plus tard. Dans des circonstances qu'elle n'imaginait pas encore. Dans un endroit qu'elle ne pouvait pas encore voir.
+Elias ne savait pas qu'il venait de planter quelque chose. Comme une graine sous du béton — on ne la voit pas pousser, mais ça pousse quand même, dans le noir, en cherchant la fissure.
 
-Elias, lui, ne savait pas qu'il venait de planter quelque chose. Comme on plante une graine sous une dalle de béton et qu'on ne la voit pas pousser — ça pousse quand même, dans le noir, lentement, en cherchant la fissure par laquelle passer. Il ne savait pas. Il avait juste dit ce qu'il croyait, simplement, parce qu'il ne savait pas faire autrement que simplement avec Sara.
+---
 
-La pluie s'allégea. Le monde reprit sa respiration.
+Quand la pluie s'arrêta, Sara dit :
 
-Ils repartirent côte à côte sur le chemin rendu brillant par l'eau. Des flaques rouges entre les pavés. L'odeur de terre encore chaude. Des enfants qui couraient pieds nus dans les rigoles.
+— T'as mangé quoi à la cantine aujourd'hui ?
 
-— T'as mangé quoi aujourd'hui à la cantine ? dit Sara, comme si la conversation précédente n'avait pas eu lieu, comme si elle avait soigneusement rangé quelque chose dans un tiroir intérieur pour y revenir plus tard, dans le silence de sa chambre, dans le noir d'un soir à venir.
-
-— Riz sauce graine, dit Elias. Toi ?
+— Riz sauce graine. Toi ?
 
 — Pareil. La sauce était trop salée.
 
 — Comme d'habitude.
 
-— Comme d'habitude, dit Sara.
+— Comme d'habitude.
 
-Et ils marchèrent. Le soleil revenait par fragments entre les nuages déchirés. Une belle lumière de fin d'averse, cette lumière particulière qui fait briller les feuilles des manguiers comme si chaque feuille était une promesse.
+Et ils repartirent côte à côte sur le chemin rendu brillant par l'eau. Des flaques rouges entre les pavés. L'odeur de la terre encore chaude. Des enfants qui couraient pieds nus dans les rigoles.
+
+La lumière de fin d'averse faisait briller les feuilles des manguiers — chaque feuille comme une promesse.
 
 ---
 
 La photo du bac fut prise un jeudi de juin.
 
-La cour du lycée Harris, une heure après la dernière épreuve de la session — le soleil de juin, les uniformes froissés par une journée entière, les groupes qui se formaient avec cette spontanéité particulière des fins de quelque chose. Quelqu'un avait apporté un appareil photo — un vrai, à objectif, pas juste un téléphone. Le genre de photo qui allait exister en format papier quelque part dans les années à venir.
+Cour du lycée Harris, une heure après la dernière épreuve. Les uniformes froissés, les groupes qui se formaient avec cette spontanéité des fins de quelque chose. Quelqu'un avait apporté un vrai appareil photo — à objectif, pas juste un téléphone.
 
 Sara riait aux éclats.
 
-C'était un rire de quelque chose de précis — une blague que quelqu'un venait de faire juste avant le déclencheur, une de ces blagues de l'instant qui n'auraient pas été drôles cinq minutes plus tôt ou cinq minutes après mais qui à cette seconde précise avaient produit ce rire — la tête légèrement renversée en arrière, les yeux à moitié fermés, la main sur la bouche. Un rire sans calcul. Un des rares.
+Un rire de quelque chose de précis — une blague faite juste avant le déclencheur, une de ces blagues de l'instant qui n'auraient pas été drôles cinq minutes plus tôt. La tête légèrement renversée en arrière, les yeux à moitié fermés, la main sur la bouche. Un rire sans calcul. Un des rares.
 
 Elias, à côté d'elle, souriait de côté.
 
-C'est le sourire qu'Elias avait quand il regardait quelque chose qui lui faisait du bien sans qu'il veuille le montrer trop — un sourire retenu, légèrement sur le bord, comme si la joie qu'il ressentait était trop grande pour un sourire ordinaire mais qu'il ne savait pas encore comment la laisser prendre tout l'espace.
+Ce sourire qu'il avait quand il regardait quelque chose qui lui faisait du bien sans vouloir le montrer trop — retenu, légèrement sur le bord, comme si la joie était trop grande pour un sourire ordinaire.
 
 Il regardait Sara rire.
 
-La photo fut développée trois semaines plus tard, dans l'unique labo photo encore ouvert à Yopougon. Elle existait en deux exemplaires — un pour Sara, un pour Elias. Sara la posa sur son bureau. Elias la glissa dans son dernier cahier quadrillé, entre deux pages de dessins.
+La photo exista en deux exemplaires. Sara la posa sur son bureau. Elias la glissa dans son dernier cahier, entre deux pages de dessins.
 
 ---
 
 Le carnet était bordeaux.
 
-Elias l'avait trouvé au marché d'Adjamé, dans l'une de ces boutiques de papeterie qui vendaient de tout, pêle-mêle — stylos, cahiers, scotch, enveloppes, et parfois des objets un peu particuliers qu'on ne savait pas trop comment ils étaient arrivés là. Ce carnet était relié en similicuir bordeaux avec une fermeture à élastique noir, ses pages légèrement crème, d'un grammage plus lourd que les cahiers ordinaires. Il avait quelque chose de sérieux, de résolu.
+Elias l'avait trouvé au marché d'Adjamé dans une de ces boutiques de papeterie qui vendaient de tout pêle-mêle. Relié en similicuir, fermeture à élastique noir, pages crème d'un grammage plus lourd que les cahiers ordinaires. Il avait quelque chose de résolu.
 
-Elias l'acheta sans trop savoir pourquoi. Il savait juste que ce n'était pas pour lui.
+Il l'acheta sans trop savoir pourquoi. Il savait juste que ce n'était pas pour lui.
 
-Il l'offrit à Sara la dernière semaine du lycée, un mercredi après-midi.
+Il l'offrit à Sara la dernière semaine du lycée.
 
-— Tiens, dit-il.
+— Tiens.
 
-Sara prit le carnet, le tourna dans ses mains. — C'est quoi ?
+Sara le tourna dans ses mains. — C'est quoi ?
 
 — Un carnet.
 
-— Je vois bien que c'est un carnet. Pour quoi faire ?
+— Pour quoi faire ?
 
 — Pour écrire.
 
 — J'écris pas.
 
-— T'écris très bien. Tes rédactions de philo...
+— T'écris très bien. Tes rédactions de philo—
 
-— C'est pas pareil. Là c'est pour qui ? Pour quoi ?
+— C'est pas pareil. Là c'est pour qui ?
 
-Elias haussa les épaules. — Pour toi. Pour les choses que t'as pas dites. Pour ce que les mots dits ne peuvent pas dire.
+— Pour toi. Pour les choses que t'as pas dites. Pour ce que les mots dits ne peuvent pas dire.
 
-Sara ouvrit le carnet. Sur la première page, il avait écrit à la main, de sa petite écriture serrée :
+Sara ouvrit le carnet. Sur la première page, il avait écrit à la main, en petites lettres serrées :
 
-*Pour écrire ce que les mots dits ne peuvent pas dire.*
+*Pour Sara Mensah qui pense que les gens l'aiment parce qu'elle est belle. Par celui qui sait que c'est faux. — E.K.*
 
-Elle lut la phrase. La relut.
+Elle le regarda longtemps. Puis elle referma le carnet.
 
-— T'es vraiment bizarre, dit-elle.
+— Merci, dit-elle. D'une voix différente de sa voix habituelle. Plus basse. Plus vraie.
 
-— Tu me le dis depuis dix ans.
+Elias hocha la tête.
 
-— C'est encore vrai, dit Sara. Mais elle souriait.
-
-Elle referma le carnet, le glissa dans son sac. Elle ne dit pas *merci* tout de suite — ce n'était pas son style, le merci immédiat et conventionnel. Elle le dirait plus tard, d'une façon détournée, en mentionnant le carnet dans une conversation future de façon à signifier qu'elle l'avait gardé, qu'il comptait. Elias savait ça. Il attendrait.
-
-Ils marchèrent ensemble ce soir-là pour la dernière fois dans la géographie du lycée — la cour, les couloirs, la sortie sur la route principale. Demain les résultats du bac. Après-demain, les choses changeraient.
-
-La route principale de Yopougon-Sideci était la même depuis dix ans et elle serait la même dans dix ans. Le sol de latérite rouge. Les manguiers. Les vendeurs à leurs postes habituels. L'odeur des beignets frits de la femme au grand wok d'huile.
-
-Vingt-deux minutes.
-
-Sara marchait à son rythme habituel. Elias à côté. Le silence de ceux qui n'ont pas besoin de remplir.
-
-Elle pensa au cahier bordeaux dans son sac. Elle pensa à la phrase écrite sur la première page. *Pour écrire ce que les mots dits ne peuvent pas dire.* Elle se demanda ce qu'elle avait en elle qu'elle n'avait pas dit, qu'elle ne savait peut-être pas encore dire.
-
-*Beaucoup de choses, probablement,* pensa-t-elle. *Trop de choses.*
-
-Mais ce soir elle ne les cherchait pas. Ce soir elle marchait juste, avec son ami, sur la route rouge qu'ils connaissaient par cœur depuis dix ans, dans la lumière dorée d'une fin de lycée qu'ils ne sauraient jamais retrouver.
-
-Au carrefour, la lumière du soir était la même orange douce de tous les soirs depuis l'enfance.
-
-— À demain, dit Sara.
-
-— À demain, dit Elias.
-
-Ils ne savaient pas que *demain* allait changer de sens.
+Il ne savait pas — et elle non plus — que ce carnet bordeaux allait voyager avec elle pendant des années. Dans les bonnes périodes et dans les pires. Que certains soirs, au fond de la nuit, c'est dans ses pages qu'elle chercherait la fille qu'elle avait été avant de ne plus se reconnaître.
 
 ---
 
-### Chapitre 4 — Le dernier adieu
+## Chapitre 4 — Le dernier adieu
 
-Les résultats du bac tombèrent un vendredi matin.
+Le mois d'août arriva comme une fin de phrase.
 
-Sara avait son bac avec mention Bien. Elias avait son bac avec mention Assez Bien. La différence de mentions était dans l'ordre naturel des choses — Sara avait toujours été plus forte en lettres, Elias en maths, et l'examen avait récompensé cela avec la précision froide des institutions.
+Les résultats du bac tombèrent un lundi matin. Sara avait la mention Bien. Elias avait la mention Assez Bien et s'en fichait complètement. Ils apprirent la nouvelle sur la même liste affichée à la grille du lycée, debout côte à côte, les épaules pressées par la foule des familles venues vérifier.
 
-La famille de Sara fit une petite fête ce soir-là. Sa mère avait acheté du riz gras et du poulet braisé, il y avait du jus de gingembre et du Coca, la cour de la maison avait été balayée deux fois. Les voisines étaient passées féliciter, la tante maternelle venue d'Adjamé avec des enveloppes, les frères et sœurs dans leurs habits propres. Il y avait quelque chose de chaud et de simple dans cette fête-là — rien d'ostentatoire, juste la satisfaction d'une famille qui avait travaillé pour quelque chose et qui voyait ce quelque chose aboutir.
+Sara prit le téléphone et appela sa mère. Sa mère se mit à pleurer. Sara rit. Elias écouta la scène de côté, et son sourire — ce sourire retenu, légèrement sur le bord — dit quelque chose qu'il n'aurait pas su formuler.
 
-Elias passa une heure dans la soirée. Il apporta un petit gâteau acheté chez le pâtissier libanais de la rue du marché. Il félicita Sara, serra la main de la mère de Sara — la femme lui avait toujours témoigné une affection particulière, ce *garçon sérieux*, ce *fils respectueux* dont elle parlait à ses amies. Il resta le temps qu'il fallait et repartit sans faire de bruit, comme toujours.
+— On fête ça comment ? dit Sara en raccrochant.
 
-Sara le regarda partir depuis la cour. Son dos, son sac, sa façon de marcher légèrement penchée vers l'avant comme s'il penchait vers quelque chose qu'il voulait atteindre.
+— Brochettes de Bah Alpha ?
 
-*Il part*, pensa-t-elle. Puis, presque immédiatement: *Il revient toujours.*
+Elle éclata de rire. — On s'est connus avec les brochettes de Bah Alpha. C'est logique qu'on finisse le lycée avec les brochettes de Bah Alpha.
 
----
+Ils y allèrent. Brochettes, jus de bissap, le soleil d'août sur les toits de Yopougon. Ils parlèrent de tout et de rien — les projets, la fac, ce qui venait. Et pendant toute la soirée, il y avait quelque chose en suspens entre eux, quelque chose que ni l'un ni l'autre n'abordait directement, comme un mot qu'on n'ose pas prononcer parce qu'une fois dit il devient réel.
 
-Les adieux furent maladroits.
+*On ne va plus marcher ensemble pendant vingt-deux minutes.*
 
-Pas d'une maladresse douloureuse — plutôt d'une maladresse douce, celle de deux personnes qui ne savent pas encore qu'elles se disent au revoir pour longtemps et qui donc ne préparent pas les bons mots.
+Sara partait à l'INPHB de Yamoussoukro pour l'architecture. Elias restait à Abidjan pour les Beaux-Arts.
 
-Sara était inscrite à l'Université Félix Houphouët-Boigny — l'UFHB, à Cocody, de l'autre côté d'Abidjan. Droit, première année. Sa mère aurait voulu médecine mais Sara avait eu ce regard particulier — *Maman, je suis capable de décider de ma vie* — et sa mère avait cédé, parce que ce regard-là ne cédait jamais.
-
-Elias était inscrit à l'Institut Supérieur de Comptabilité de Yopougon. Deux quartiers de distance. Ce n'était pas loin. Mais Cocody et Yopougon, dans la géographie mentale d'Abidjan, sont deux façons différentes d'être dans la même ville.
-
-— Tu m'appelleras, dit Sara. C'était la dernière semaine d'août.
-
-— Souvent, dit Elias.
-
-— Pas *souvent*. M'appelleras. C'est tout.
-
-— D'accord. Et toi tu répondras.
-
-— Je réponds toujours.
-
-— Pas toujours.
-
-— Plus que la plupart des gens.
-
-Elias sourit. — C'est vrai.
-
-Ils étaient dans la cour de la maison de Sara — la même cour que la petite fête du bac, balayée deux fois le jour de la réception et pas trop souvent depuis. Sara avait les bras croisés, debout contre le mur, ses nattes relevées de la même façon que ce premier jour au lycée. Elias avait les mains dans les poches. Le ciel était blanc de chaleur. Un lézard traversa rapidement le sol à leurs pieds.
-
-— Prends soin de toi, dit Elias. Avec une simplicité qui n'avait rien de banal.
-
-Sara le regarda. — Toi aussi.
-
-Ce n'était pas un au revoir de roman. Il n'y avait pas de larmes, pas d'embrassades longues, pas de phrases définitives. Juste deux personnes de dix-huit ans qui avaient partagé dix ans d'enfance et d'adolescence et qui se tenaient maintenant debout sur le seuil de quelque chose d'autre, sans outils pour mesurer ce que *quelque chose d'autre* allait vouloir dire.
-
-Elias repartit par la rue des cocotiers.
-
-Sara resta dans la cour un moment après son départ. Le lézard était revenu. Le ciel était toujours blanc de chaleur.
-
-*Il revient toujours.*
-
-Mais elle ne savait pas encore ce que *toujours* coûtait.
+Deux cents kilomètres. Pas la lune. Mais deux cents kilomètres quand même.
 
 ---
 
-Les premiers messages WhatsApp furent fréquents.
+La dernière vraie soirée ensemble fut un jeudi.
 
-**Elias** [12 sept, 08h14]: Comment c'est Cocody ? La fac ressemble à quoi ?
+Ils s'assirent dans la cour de Maman Aya — la mère d'Elias — jusqu'à vingt-deux heures, heure à laquelle Sara dit qu'elle devait rentrer. Maman Aya leur avait apporté de l'attiéké chaud en début de soirée et les avait laissés tranquilles.
 
-**Sara** [12 sept, 09h32]: Grand. Bruyant. Beaucoup de monde. J'adore. Toi l'ISC ?
+Ils ne parlèrent pas de ce que signifiait le départ. Ils parlèrent de tout ce qui ne le signifiait pas — un film qu'ils avaient vu, un souvenir de la maîtresse Adjoba du primaire, la blague du Coca pour Dieu. Sara rit plusieurs fois. Elias la regarda rire plusieurs fois.
 
-**Elias** [12 sept, 09h45]: Plus petit. Silencieux. Je m'y fais.
+Avant de partir, Sara s'arrêta à la porte de la cour.
 
-**Sara** [15 sept, 18h22]: J'ai mangé le meilleur attiéké de ma vie au maquis en face de la fac. Tu dois venir voir.
+— Elias.
 
-**Elias** [15 sept, 20h06]: Ce weekend ?
+— Oui.
 
-**Sara** [15 sept, 20h19]: Ce weekend je suis prise. Samedi prochain ?
+— Le carnet. Je vais l'apporter à Yamoussoukro.
 
-**Sara** [16 sept, 23h45]: Tu dors ?
+— Je sais.
 
-**Elias** [16 sept, 23h47]: Non. Ça va ?
+— Je sais que tu sais.
 
-**Sara** [16 sept, 23h52]: Oui. Je sais pas. Oui. Bonne nuit.
+Un silence.
 
-**Elias** [16 sept, 23h53]: Bonne nuit Sara.
+— Tu vas me manquer, dit-elle. Ce n'était pas dans ses habitudes. Sara n'était pas du genre à dire les choses qui la rendaient vulnérable — c'était peut-être la première fois depuis les huit ans qu'elle le disait directement.
 
----
+Elias ne sourit pas cette fois.
 
-Les semaines passèrent. Les messages continuèrent — d'abord tous les deux jours, puis deux fois par semaine, puis une fois par semaine avec parfois des trous qui s'allongeaient sans que ce soit voulu, juste la vie qui s'installait et prenait de la place.
+— Toi aussi, dit-il. Simplement.
 
-La vie de Sara à l'UFHB avait sa propre vitesse, sa propre lumière. Elle était dans un amphi de trois cents étudiants en droit fondamental, quelque chose d'anonyme et d'excitant en même temps — cette sensation d'être une parmi des centaines, de recommencer à zéro, de redevenir quelqu'un que personne ne connaissait encore. Elle aimait ça. Elle aimait se reconstruire dans le regard de nouvelles personnes.
+Elle hocha la tête. Repartit dans la nuit de Yopougon.
 
-Et dans ce monde nouveau, il y avait des hommes différents de ceux du lycée de Yopougon. Des hommes plus âgés, plus assurés. Des étudiants en troisième année, en master, parfois des professeurs assistants. Des hommes qui avaient des voitures, qui connaissaient des restaurants au Plateau, qui parlaient d'avenir avec une autorité qui semblait réelle. Des hommes qui voyaient Sara différemment — pas comme *la fille du lycée Harris*, mais comme *cette femme belle et intelligente*.
-
-Elle flottait dans ce monde avec sa légèreté habituelle. Elle n'était pas naïve — elle avait treize ans et Arnaud derrière elle, elle avait appris. Mais elle aimait cette circulation-là, ce mouvement parmi les regards et les conversations. Elle aimait se sentir désirée de façon qui lui semblait adulte maintenant.
-
-**Elias** [3 nov, 19h15]: T'es libre ce samedi ? Le maquis de l'attiéké ?
-
-**Sara** [4 nov, 11h22]: Ce samedi j'ai un truc. La semaine d'après ?
-
-**Sara** [4 nov, 11h23]: Je suis désolée
-
-**Elias** [4 nov, 14h07]: C'est bon. La semaine d'après.
-
-La semaine d'après passa sans que le maquis de l'attiéké soit au programme.
+Il resta dans la cour encore un moment après que le bruit de ses pas sur le gravier eut disparu.
 
 ---
 
-Elias, lui, s'enfonçait dans sa vie à l'ISC avec la même application tranquille qu'il avait mise dans ses études au lycée. La comptabilité n'était pas une passion — il le savait, il se l'était dit honnêtement. Mais elle était une compétence utile, une façon de construire quelque chose de concret, et Elias avait toujours eu ce rapport pragmatique à ce qu'il faisait pour vivre, séparé de ce qu'il faisait pour être.
+*Cinq ans plus tard.*
 
-Pour être, il dessinait encore. Et il priait.
+Sara Kouassi — le nom lui faisait encore quelque chose de bizarre dans la gorge, comme un vêtement qui ne lui appartient pas — Sara Kouassi était assise dans la cuisine de l'appartement de Cocody et regardait la table.
 
-La foi s'était approfondie dans sa première année de vie adulte d'une façon qu'il n'avait pas prévue. Pas spectaculairement — il n'y avait pas eu de révélation, pas de nuit blanche de conversion, pas de témoignage dramatique. Juste cette pratique quotidienne qui creusait doucement, comme l'eau qui creuse la roche pas par force mais par persistance. Il lisait les Écritures le matin. Il allait au culte le dimanche à l'Église Évangélique du Carrefour. Il avait rejoint un groupe de jeunes chrétiens qui se réunissait le vendredi soir dans la salle communautaire derrière le marché.
+Elle avait un œil tuméfié. Pas encore fermé complètement — juste cette teinte violette-jaune autour de la paupière qui commençait à virer, ce qu'Elias avait un jour appelé la couleur du soir qui se couche sur la joue. Elle n'avait pas pensé à lui depuis longtemps. Depuis combien de temps ? Elle ne savait plus.
 
-Il priait pour sa famille. Pour ses études. Pour ses amis.
+Sur la table : les deux petits bols du petit-déjeuner de Naomi et Ruth. Une tasse de thé à moitié bue. Le carnet bordeaux qu'elle n'avait pas ouvert depuis des mois.
 
-Il priait pour Sara, sans trop savoir pour quoi exactement — juste ce nom dans ses prières, cette présence maintenue, comme si l'amitié avait besoin d'un espace propre pour continuer d'exister même à distance.
+Dans la chambre du fond, les filles dormaient encore. Il était sept heures du matin. Marcus était parti.
 
-**Sara** [18 déc, 21h30]: Joyeuses fêtes en avance. Je pars chez ma tante à Bouaké pour Noël.
+*Il revient ce soir.*
 
-**Elias** [18 déc, 22h04]: Joyeuses fêtes Sara. Profite bien.
+Elle regarda la table. Elle regarda ses mains. Elle regarda le carnet bordeaux.
 
-**Sara** [18 déc, 22h15]: Toi aussi. Prends soin de toi révérend.
+Elle ne l'ouvrit pas.
 
-**Elias** [18 déc, 22h17]: Toujours.
-
-Ce fut l'un de leurs derniers échanges fréquents.
-
-L'année suivante, les messages s'espacèrent encore. Sara avait trouvé son groupe à la fac — Méryl, Christelle, Solange, des filles brillantes et ambitieuses qui vivaient Abidjan avec une intensité que Sara reconnaissait comme la sienne. Les soirées. Les restaurants du Plateau. Les rencontres. La vie qui s'accélérait.
-
-Elias avait son groupe au Carrefour — les jeunes de l'Église, les études, le travail en parallèle qu'il avait commencé à temps partiel dans un cabinet comptable du quartier. La vie sérieuse, tranquille, posée.
-
-Deux façons d'être dans la même ville.
-
-Deux trajets qui ne se croisaient plus naturellement.
-
-**Sara** [23 mars, deuxième année]: T'as l'air bien sur ta photo de profil. T'as coupé les cheveux ?
-
-**Elias** [23 mars]: Oui. T'as bonne mine toi aussi. Tu souris beaucoup sur tes photos ces temps-ci.
-
-**Sara** [23 mars]: On sourit quand on est bien.
-
-**Elias** [23 mars]: Tu es bien ?
-
-**Sara** [23 mars]: Je crois. Et toi ?
-
-**Elias** [23 mars]: Je suis bien. Je prie pour toi souvent.
-
-**Sara** [23 mars]: Je sais. C'est bizarre mais j'aime bien que tu fasses ça.
-
-Puis les mois. Les semestres. Les années.
-
-Les messages devinrent rares — les anniversaires, Noël, une actualité d'Abidjan qui leur rappelait l'autre et déclenchait un message spontané. *T'as vu il pleut comme jamais aujourd'hui.* *Je suis passé devant l'école Sainte-Marie tout à l'heure.* Petites touches de l'ancienne vie qui remontaient à la surface.
-
-Et puis, imperceptiblement, même cela s'espacea.
-
-Le silence n'arriva pas en décision. Il arriva comme arrivent les silences entre deux personnes qui ont été proches — par accumulation de jours où on ne s'est pas écrit, où la vie était trop pleine, où on s'est dit *je lui enverrai un message demain* et où demain était encore demain encore demain.
-
-Un fil ne se rompt pas toujours. Parfois il se pose, doucement, dans un tiroir quelque part, et les deux mains qui le tenaient ne savent pas elles-mêmes à quel moment elles l'ont lâché.
+Elle n'était plus sûre de mériter les mots qu'il y avait dedans.
 
 ---
 
-Les années passèrent.
-
-Elles ont cette façon de passer — pas uniformément, pas à la même vitesse. Certaines années sont longues comme des siècles, denses, chargées, avec chaque mois qui pèse son propre poids. D'autres années passent comme une après-midi, légères, sans aspérités, et on se retourne soudain en se demandant comment on a pu être trois ans plus loin.
-
-Sara eut son master de droit à vingt-trois ans. Elle avait un travail dans un cabinet d'avocats du Plateau à vingt-quatre. Elle avait un appartement à elle à vingt-cinq — petit, au troisième étage d'un immeuble de Cocody, avec une terrasse étroite sur laquelle elle mettait deux plantes qui survivaient par intermittence selon ses humeurs.
-
-Le carnet bordeaux était dans le deuxième tiroir de son bureau. Elle ne l'avait pas encore ouvert. Elle l'avait emporté à Cocody dans les affaires de son déménagement, et il avait trouvé sa place dans ce tiroir sans qu'elle y pense vraiment, comme ces objets qu'on ne sait pas où mettre mais qu'on ne jette pas non plus parce que quelque chose en eux est irremplaçable.
-
-Elle y penserait parfois. Tard le soir, quand la ville faisait moins de bruit. Elle ouvrirait le tiroir, verrait la tranche bordeaux, et le refermerait.
-
-*Pas ce soir.*
-
-Et elle avait rencontré Franck.
-
-Franck Kouassi avait trente ans quand elle l'avait rencontré dans une soirée d'avocats au bord de la lagune, un vendredi de janvier. Grand, bien habillé, une façon de prendre la parole qui commandait l'attention. Il était dans l'immobilier — pas petit promoteur, mais vraiment dans l'immobilier, avec des projets à Abidjan-Nord et une villa à Bassam. Il avait regardé Sara avec ces yeux qui savaient regarder les femmes, et Sara avait pensé : *voilà quelqu'un qui sait qui il est.* Elle aimait les gens qui savaient qui ils étaient.
-
-Ils avaient parlé deux heures ce soir-là. Il connaissait les bons restaurants, les bons mots, les bons gestes — la façon de poser sa main dans son dos en traversant une pièce, pas possessif mais protecteur, la nuance qui fait toute la différence.
-
-Neuf mois plus tard, Sara Mensah était devenue Sara Kouassi.
-
-Sa mère avait pleuré de joie à la mairie. Sa sœur Cécile avait porté la robe. Aminata et Kenza avaient dansé jusqu'à minuit.
-
-*Elias*, avait pensé Sara en signant les papiers. Juste une seconde. Elle avait eu la pensée fugace de lui envoyer un message — mais le stylo était dans sa main, le maire souriait, Franck lui tendait son anneau, et la pensée était passée comme passent les pensées quand la vie est trop pleine pour les retenir.
-
----
-
-Elias eut son diplôme de comptabilité. Il travailla dans le cabinet de Yopougon, puis dans un plus grand cabinet à Plateau-Dokui. Il avança avec cette façon tranquille qui était la sienne — pas spectaculairement, pas vite, mais solidement. Il continua à dessiner. Il continua à prier. Il trouva dans sa communauté de foi des amitiés solides, des gens qui lui ressemblaient dans leurs valeurs même s'ils ne lui ressemblaient pas toujours dans leur façon d'être.
-
-Il y eut une femme, pendant deux ans. Une fille de l'Église, douce et studieuse, qui s'appelait Nadège. Ils avaient été ensemble avec sérieux, avec respect, et s'étaient séparés avec la même sérénité — ils n'étaient pas faits l'un pour l'autre, et ils l'avaient tous les deux compris au même moment, ce qui était une forme de grâce. Il n'y avait pas eu de déchirement.
-
-Après Nadège, Elias avait vécu seul. Il n'en souffrait pas exactement. Il habitait une chose qui ressemblait à une attente tranquille — pas l'attente anxieuse de quelqu'un qui redoute la solitude, mais l'attente calme de quelqu'un qui sait que l'heure viendra sans qu'on ait besoin de la forcer.
-
-Il priait le matin. Il dessinait le soir. Il faisait son travail avec soin.
-
-Et il priait pour Sara, toujours, sans savoir pourquoi cette prière persistait alors que le contact s'était effilé. Il ne savait pas pour quoi il priait exactement. Juste son nom. Juste cette présence dans ses prières du matin, régulière, obstinée, comme quelque chose que sa main connaissait et répétait même sans que sa tête lui en donne l'ordre.
-
-Certains matins il se demandait si c'était étrange — de prier pour quelqu'un dont on n'avait plus de nouvelles depuis des années. Puis il se disait que non. Que Dieu gardait les traces de toutes les vies, de toutes les connexions, même celles que le temps avait silencieuses. Que dans l'économie de Dieu, rien de ce qui avait compté n'était vraiment perdu.
-
-Il ne savait pas à quoi servait cette prière. Il ne savait pas non plus à quoi servent les racines d'un arbre dont on ne voit jamais que le tronc et les branches.
-
----
-
-Dix ans plus tard, Sara Mensah avait vingt-huit ans.
-
-Elle s'appelait désormais Sara Kouassi.
-
-Ce matin, elle s'était levée à six heures — ou plutôt elle avait cessé de faire semblant de dormir, ce qui n'est pas la même chose. Elle était restée dans le noir quelques minutes, à écouter la respiration de la maison, à attendre que quelque chose se calme en elle.
-
-Puis elle s'était levée. Elle avait fait du café dans la cuisine silencieuse. Elle avait bu debout contre le plan de travail, les deux mains sur la tasse chaude, le regard nulle part.
-
-Avant de sortir, elle avait ouvert le deuxième tiroir de son bureau.
-
-Le carnet bordeaux était là. Toujours là, depuis dix ans, dans ce tiroir qui ne fermait plus tout à fait. Elle l'avait tenu dans ses mains. La tranche soyeuse, l'élastique légèrement détendu par les années. Elle l'avait ouvert à la première page.
-
-*Pour écrire ce que les mots dits ne peuvent pas dire.*
-
-Elle avait refermé le carnet. L'avait reposé dans le tiroir.
-
-Puis elle était allée dans l'entrée et avait pris ses lunettes de soleil dans le meuble d'entrée — les grandes, celles à monture noire qui couvraient jusqu'aux pommettes.
-
-Son œil gauche était tuméfié.
-
-Elle avait regardé son reflet une seconde dans le miroir de l'entrée. Derrière les lunettes, on ne voyait rien. On voyait seulement Sara Kouassi, vingt-huit ans, bien habillée, qui partait au travail.
-
-*Ça va*, pensa-t-elle. Sa vieille réponse automatique, polie, usée à force d'usage.
-
-Mais cette fois elle n'y croyait plus.
-
----
-
-*[FIN PARTIE I]*
----
-
+*Fin de la Première Partie*
 ## PARTIE II — LES ANNÉES DE TEMPÊTE
 
 ---
