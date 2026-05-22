@@ -776,7 +776,7 @@ Il resta dans la cour encore un moment après que le bruit de ses pas sur le gra
 
 ---
 
-*Cinq ans plus tard.*
+*Dix ans plus tard.*
 
 Sara Kouassi — le nom lui faisait encore quelque chose de bizarre dans la gorge, comme un vêtement qui ne lui appartient pas — Sara Kouassi était assise dans la cuisine de l'appartement de Cocody et regardait la table.
 
@@ -802,6 +802,8 @@ Elle n'était plus sûre de mériter les mots qu'il y avait dedans.
 ---
 
 ### Chapitre 5 — L'éblouissement
+
+*Pour comprendre comment Sara en était arrivée là — le nom Kouassi, l'œil tuméfié, le carnet fermé — il faut remonter. Dix ans en arrière. À l'époque où elle s'appelait encore Mensah, où elle avait vingt-deux ans, et où elle ne savait pas encore ce que certains sourires coûtent.*
 
 L'appartement était petit, mais il était à elle.
 
