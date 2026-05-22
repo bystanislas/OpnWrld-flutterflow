@@ -1547,37 +1547,89 @@ Elle resta comme ça un moment. La feuille blanche devant elle. Sans écrire. Pu
 
 ---
 
-*Naomi. Ruth. Ma vie, c'était vous.*
+*Mes filles,*
 
-*Je ne sais pas par où commencer. Avec les mots, j'ai toujours su commencer. J'ai fait des études, j'ai travaillé dans une agence, j'ai écrit des textes pour des gens qui ne savaient pas dire ce qu'ils voulaient dire. Mais là, je ne sais pas. Alors je vais commencer par le commencement, c'est-à-dire par vous.*
+*Si vous lisez ceci, c'est que je suis partie avant d'être prête. Je veux que vous sachiez que ce n'est pas votre faute. Que vous n'avez rien fait. Que vous êtes la chose la plus belle que j'aie jamais touchée de mes deux mains — et je ne finirai jamais cette phrase parce qu'il n'y a pas de mots assez grands pour la finir.*
 
-*Naomi. Tu as sept ans. Tu es grave comme une petite fille qui a vu trop tôt les choses sérieuses. Je t'en demande pardon. J'aurais dû vous protéger de ce que vous avez vu. J'aurais dû partir plus tôt. J'aurais dû avoir plus de courage que de peur.*
+*Je vais essayer de vous dire tout ce que je n'ai pas eu le temps de dire. Tout ce que j'aurais voulu vous dire un dimanche matin sur la terrasse, avec le thé qui refroidit et vous deux en pyjama, quand vous auriez eu l'âge de comprendre. Puisque je ne serai pas là ce dimanche-là, je vous l'écris maintenant.*
 
-*Je me souviens du soir où tu es née. Ton père pleurait. Je croyais que ça voulait dire que tout irait bien. Je croyais que les larmes des pères sur les nouveau-nés étaient une promesse. Je me trompais. Les larmes ne sont pas des promesses.*
+*Il faut que je vous parle de vos naissances d'abord. Parce que tout a commencé là.*
 
-*Il y a une chose que je veux que tu retiennes — une seule. Un homme qui te frappe une fois te frappera encore. Je sais que tu es petite et que ce n'est pas le moment. Mais garde ça quelque part. La première fois n'est jamais la dernière. Pars à la première fois. Pars même si tu l'aimes. Pars surtout si tu l'aimes.*
+*Naomi.*
 
-*Ruth. Mon Ruth. Tu as cinq ans et tu ris pour tout. Tu appelles ton chat imaginaire Fifou. Tu construites des châteaux avec les coussins du canapé. Tu chantes des chansons en inventant les paroles quand tu ne les connais pas. Tu es la chose la plus lumineuse que j'aie jamais vue de près. Tu es une flamme. Garde ta flamme. Le monde va essayer de te la prendre de mille façons — par la peur, par la honte, par les gens qui te diront que tu prends trop de place. Ne les écoute pas. Prends la place. Ris fort. Veux tout.*
+*Tu es née un mardi soir de novembre. Il faisait lourd dehors, la saison des pluies tardives. Je me souviens de la lumière de la salle de travail — trop blanche, trop froide — et de tenir la main de l'infirmière parce que je ne savais pas encore comment me tenir moi-même dans ces moments-là. Et puis tu es arrivée. On t'a posée sur ma poitrine. Tu étais rouge et froissée et tu faisais un bruit qui ressemblait moins à un cri qu'à une réclamation — comme si tu arrivais dans ce monde avec déjà quelque chose à dire à son sujet.*
 
-*Il y a une nuit — tu étais dans le couloir et tu as vu quelque chose. Et tu es retournée dans ta chambre toute seule. Tu as tiré ta couverture sur toi. Je n'étais pas là pour te tenir. Je n'ai pas pu. Cette nuit-là, je t'ai manqué d'une façon que je n'arrive pas à me pardonner.*
+*Je t'ai regardée. Et pour la première fois depuis longtemps, quelque chose en moi s'est mis complètement immobile. Une paix que je ne connaissais pas. Comme si tout ce qui avait été agité en moi venait de trouver un centre.*
 
-*Ce que tu as vu cette nuit-là — ce n'est pas ce que l'amour ressemble. L'amour ne ressemble pas à ça. L'amour ne fait pas peur. L'amour ne te demande pas de tirer ta couverture sur toi toute seule dans le noir.*
+*Tu pesais trois kilos deux cents. Tes oreilles étaient minuscules. Ta peau sentait quelque chose d'inoubliable — une odeur que je n'ai jamais retrouvée nulle part et que je n'essaierai pas de décrire parce que les mots l'abîmeraient.*
 
-*Je vous ai regardées dormir des centaines de fois. Naomi avec son front légèrement plissé, comme si même dans le sommeil tu réfléchissais. Ruth en boule, le pouce tout près de la bouche. Ces images-là, je les ai gardées comme de l'argent pour les temps difficiles.*
+*Ton père pleurait. À ce moment-là, j'ai cru que ça voulait dire que tout irait bien. J'avais tort. Les larmes ne sont pas des promesses. Mais ça, je ne le savais pas encore.*
 
-*Elles ne suffisent plus. Je suis tellement fatiguée, mes amours. La fatigue de quelqu'un qui n'a plus de réserves. La fatigue de quelqu'un qui a tout donné et n'a pas su où et à qui le reprendre.*
+*Naomi, tu étais un bébé grave. Tu observais tout avant d'agir. À six mois, au lieu de babiller comme les autres bébés, tu regardais les adultes parler avec une attention concentrée — comme quelqu'un qui prend des notes. À un an, tu marchais déjà. Pas en tombant comme la plupart des petits — non. Tu t'es levée un matin, tu as fait tes cinq pas jusqu'à moi, et tu t'es assise dans mes bras comme si c'était une affaire réglée. J'ai pleuré ce jour-là. De joie. Tu as regardé mes larmes avec tes yeux sérieux et tu as posé ta petite main sur ma joue. Tu avais un an. Tu me consolais déjà.*
 
-*Je voudrais que vous sachiez que je vous ai aimées avec tout ce que j'avais. Même quand je n'avais presque rien. Même les nuits où j'ai pleuré sur le canapé. Il y avait toujours, dans le fond de ce que j'avais, quelque chose qui portait vos prénoms.*
+*Ton premier mot n'était pas "maman". C'était "dors". Parce que je te chantais tous les soirs la même chanson pour t'endormir et tu aimais me dire ce que tu voulais. Je te chantais : "Dors, dors, mon soleil, dors et rêve des meilleures choses." Tu la connais peut-être encore. Si tu l'as oubliée, c'est normal. Tu étais si petite.*
 
-*Naomi. Ruth.*
+*Ruth.*
 
-*Je vous aime. Je vous ai aimées dès le premier instant — cette seconde où on vous a posées dans mes bras, rouges et froissées et furieuses d'être là. Cette seconde est la chose la plus vraie de ma vie.*
+*Tu es née quatorze mois après ta sœur. Ta naissance a duré quarante minutes — tu étais pressée d'arriver, déjà. Quand on t'a amenée à la maison le lendemain, Naomi attendait dans le salon avec ta grand-mère. Elle s'est approchée du couffin avec les deux mains dans le dos, comme quelqu'un qui regarde quelque chose de précieux et qui a peur de casser. Elle a tendu un doigt vers toi. Tu as serré ce doigt dans ton poing minuscule. Naomi a levé les yeux vers moi avec une expression que je ne lui avais jamais vue — une expression de quelqu'un qui vient de comprendre quelque chose d'important.*
 
-*Pardonnez-moi de n'avoir pas su vous donner mieux que ça.*
+*Depuis ce jour, vous n'avez jamais vraiment dormi l'une sans l'autre. Et même quand vous avez eu vos lits séparés, je vous retrouvais souvent le matin dans le même lit, enroulées l'une autour de l'autre.*
 
-*Votre maman.*
+*Ruth, tu riais dès tes trois mois. Un vrai rire, pas des gazouillis — un rire qui venait du ventre, et qui faisait rire tout le monde autour de toi sans même savoir pourquoi. Tu avais le don rare de rendre les gens heureux sans effort. Ta lumière n'était pas quelque chose que tu produisais — c'était quelque chose que tu étais.*
 
-*Sara.*
+*Tu as marché à dix mois. Pas parce que tu voulais marcher — parce que tu voulais suivre Naomi, qui courait déjà. Tes premiers mots : "encore" et "chante". Toujours encore et chante. Tu voulais que je chante encore, et encore, et encore. Je t'aurais chanté toute ma vie.*
+
+*Mes filles. Je vais vous parler de certains dimanches.*
+
+*Il y avait un dimanche de saison sèche — vous aviez trois ans et deux ans, et votre père était en voyage. Nous avons passé la journée toutes les trois en pyjama à construire des châteaux avec les coussins du salon. Ruth, tu dirigeais le chantier avec une autorité absolue. Naomi, tu appliquais les instructions avec une précision d'ingénieur. Moi, j'étais le manœuvre. On a construit quelque chose d'immense qui tenait debout grâce à des livres en guise de fondations. À la fin, vous avez sauté dedans ensemble et tout s'est effondré et vous avez ri pendant dix minutes d'affilée. Je me souviens de la lumière de cet après-midi. La façon dont le soleil entrait par la fenêtre et vous faisait de l'or dans les cheveux.*
+
+*C'est l'image la plus belle de ma vie.*
+
+*Je me souviens des pancakes du samedi matin — Ruth qui mettait trop de sucre dans la pâte, Naomi qui chronométrait la cuisson avec sa petite montre de jouet. La façon dont vous vous disputiez pour le dernier pancake et la façon dont vous finissiez toujours par le couper en deux exactement. Naomi avec sa règle imaginaire au millimètre. Ruth qui acceptait le partage mais mangeait sa moitié trois fois plus vite.*
+
+*Je me souviens de la chanson que Ruth inventait quand elle ne connaissait pas les paroles. Elle chantait ce qui lui passait par la tête sur la mélodie. Ça donnait des choses comme : "Mon chat Fifou il mange du riz, il aime les carottes pas les souris, Fifou Fifou il est trop beau." Naomi et moi, on l'écoutait avec des visages sérieux pendant qu'elle chantait, et puis on éclatait de rire à la fin, et Ruth riait avec nous sans bien savoir pourquoi.*
+
+*Je me souviens de la nuit où Naomi a eu la forte fièvre — tu avais quatre ans, Ruth en avait trois. J'ai passé la nuit à te veiller avec des linges froids sur le front. Ruth s'est réveillée. Et au lieu d'aller dans son lit, elle est venue s'asseoir à côté de moi, près de toi, et elle t'a tenu la main. Toute la nuit. Elle avait trois ans. Elle ne s'est pas plainte. Elle t'a juste tenu la main.*
+
+*Je me souviens de vos câlins. Naomi, tu câlinais avec discrétion — tu venais te coller contre moi et tu restais là, silencieuse, comme quelqu'un qui fait le plein. Ruth, tu te jetais dans mes bras comme si tu avais peur que je sois une illusion qui allait disparaître. Je ne disparaissais jamais. Je ne voulais jamais disparaître.*
+
+*Je me souviens de vos odeurs. Le shampooing à la noix de coco de vos cheveux après le bain. L'odeur de terre et de transpiration quand vous rentriez du jardin. L'odeur de Naomi qui dort — quelque chose de propre et de chaud. L'odeur de Ruth après le petit-déjeuner — toujours légèrement sucrée.*
+
+*Ces odeurs sont dans mes mains, dans ma poitrine. Je ne sais pas où elles iront après.*
+
+*Mes filles, il faut que je vous dise quelque chose de difficile maintenant.*
+
+*Je vous demande pardon.*
+
+*Je vous demande pardon de n'avoir pas été assez courageuse assez tôt. D'avoir cru, pendant trop longtemps, que rester valait mieux que partir. D'avoir pensé — et j'ai honte de l'avouer maintenant — que vous aviez besoin de votre père sous le même toit même quand ce toit était devenu un endroit qui faisait peur. J'avais tort. Vous aviez besoin d'une mère entière. Pas d'une mère qui se répare la nuit pour sourire le matin.*
+
+*Je vous demande pardon pour les nuits où vous avez entendu des choses que vous n'auriez pas dû entendre. Pour les matins où j'avais mal et où j'essayais de le cacher — mais vous le voyiez quand même, parce que vous voyez tout. Vous avez toujours tout vu.*
+
+*Je vous demande pardon, Ruth. Pour cette nuit-là. Tu sais laquelle. Tu étais dans le couloir. Tu as vu quelque chose. Et tu es retournée dans ta chambre toute seule et tu as tiré ta couverture sur toi. Je n'étais pas là pour venir te chercher. Je n'ai pas pu. Cette nuit-là, je t'ai manqué d'une façon que je n'arrive pas à me pardonner. Ce que tu as vu — ce n'est pas ce que l'amour ressemble. L'amour ne ressemble pas à ça. L'amour ne fait pas peur. L'amour ne te demande pas de tirer ta couverture sur toi toute seule dans le noir à cinq ans.*
+
+*Je suis épuisée, mes amours. Épuisée d'une façon que je ne saurais pas expliquer à une personne qui ne l'a pas ressentie. Pas la fatigue de la nuit — ça, on récupère. Une fatigue plus profonde. La fatigue de l'âme. La fatigue de quelqu'un qui a donné tout ce qu'il avait et qui cherche quelque chose à quoi se raccrocher et qui ne trouve plus rien dans ses mains.*
+
+*Ce n'est pas votre faute. Naomi. Ruth. Répétez-vous ça. Ce n'est pas votre faute. Vous ne pouviez rien faire. Vous étiez ma raison de tenir — vous l'avez été pendant si longtemps — mais une raison de tenir n'est pas une guérison. Je n'avais pas le droit de faire de vous mon médicament. C'était trop lourd à porter pour des si petites filles.*
+
+*Alors voilà ce que je veux vous laisser. Pas des regrets. Des choses vraies.*
+
+*Naomi, toi qui es grave et sérieuse : laisse-toi aussi être légère parfois. Tu n'as pas à tout résoudre. Tu n'as pas à tout comprendre avant les autres. Pleure quand tu as envie de pleurer — les larmes ne sont pas une faiblesse, c'est le corps qui dit la vérité quand les mots ne peuvent plus. Et si un jour quelqu'un te demande de te faire toute petite pour qu'il se sente grand — pars. Pars vite. Une femme n'a pas à éteindre sa lumière pour ne pas aveugler l'obscurité de quelqu'un d'autre. Un homme qui te frappe une fois te frappera encore. La première fois n'est jamais la dernière. Pars à la première fois. Pars même si tu l'aimes. Pars surtout si tu l'aimes.*
+
+*Ruth, toi qui es une flamme : garde ta flamme. Le monde va essayer de te l'éteindre — par la peur, par la honte, par des gens qui te diront que tu prends trop de place, que tu ris trop fort, que tu veux trop. Ne les écoute pas. Prends la place. Ris. Veux tout. Et si un jour un homme lève la main sur toi — quelle que soit la raison qu'il invoque — tu sors. Tu prends tes affaires et tu sors.*
+
+*Pour vous deux : choisissez des gens qui vous rendent plus grandes, pas plus petites. Des gens qui écoutent quand vous parlez. Des gens qui ne vous font pas sentir que vous devez mériter leur amour chaque matin. L'amour vrai n'est pas une performance. C'est une présence.*
+
+*Et aimez Dieu. Pas par peur. Par confiance. Même ce soir, même là, avec ce que je suis en train de faire — je crois qu'il y a quelque chose qui nous dépasse et qui tient les choses. Je ne sais plus comment m'y accrocher moi-même ce soir. Mais vous, gardez cette corde-là. Gardez-la fort.*
+
+*Je vous ai regardées dormir des centaines de fois. Naomi, le front légèrement plissé, comme si même dans le sommeil tu réfléchissais à quelque chose. Ruth en boule, le poing tout près de la bouche. Ces deux images sont les plus belles de ma vie. Elles le resteront.*
+
+*Je vous aime d'un amour qui n'a pas de fond. Même ce soir. Même maintenant. Même partir n'efface pas ça — rien n'efface ça. Je vous aimerai de là où je serai, d'une façon que je ne comprends pas encore mais dont je suis certaine.*
+
+*Pardonnez-moi.*
+
+*Votre maman,*
+
+*Sara*
 
 ---
 
