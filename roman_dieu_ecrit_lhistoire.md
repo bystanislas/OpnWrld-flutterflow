@@ -738,7 +738,7 @@ Ils y allèrent. Brochettes, jus de bissap, le soleil d'août sur les toits de Y
 
 *On ne va plus marcher ensemble pendant vingt-deux minutes.*
 
-Sara partait à l'INPHB de Yamoussoukro pour l'architecture. Elias restait à Abidjan pour les Beaux-Arts.
+Sara partait à l'ISTC de Yamoussoukro pour la communication et le marketing. Elias restait à Abidjan pour les Beaux-Arts.
 
 Deux cents kilomètres. Pas la lune. Mais deux cents kilomètres quand même.
 
@@ -807,7 +807,7 @@ Elle n'était plus sûre de mériter les mots qu'il y avait dedans.
 
 L'appartement était petit, mais il était à elle.
 
-Sara Mensah, vingt-deux ans, se réveillait chaque matin avec cette certitude-là. Le plafond bas, le ventilateur qui tournait avec son cliquetis sourd, les rideaux en bazin violet qu'elle avait cousus un dimanche avec Amélie — tout ça lui appartenait. Pas à sa mère. Pas à une résidence universitaire. À elle.
+Sara Mensah, vingt-deux ans, diplômée depuis huit mois, rentrée de Yamoussoukro avec sa valise et la ferme intention de ne jamais repartir vivre chez sa mère. Elle se réveillait chaque matin avec cette certitude-là. Le plafond bas, le ventilateur qui tournait avec son cliquetis sourd, les rideaux en bazin violet qu'elle avait cousus un dimanche avec Amélie — tout ça lui appartenait. Pas à sa mère. Pas à une résidence universitaire. À elle.
 
 Deuxième étage d'une maison à Yopougon, quartier Ananeraie. Le propriétaire, Monsieur Djédjé, vivait en dessous avec sa femme et deux chiens. Il oubliait parfois les quittances de loyer les mois difficiles, ce qui arrangeait Sara. Sa femme, elle, frappait tous les lundis matin avec de l'attiéké trop salé et les yeux de quelqu'un qui cherche des traces de garçons. Sara la laissait regarder. Il n'y avait pas de garçons.
 
