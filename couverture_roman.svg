@@ -1,0 +1,129 @@
+<?xml version="1.0" encoding="UTF-8"?>
+<!-- Couverture : AU FINAL, C'EST DIEU QUI ÉCRIT L'HISTOIRE -->
+<!-- Auteur     : Djillah Kodjo Stanislas                    -->
+<!-- Format     : 14cm x 21cm + tranche 1.6cm + fonds perdus 3mm -->
+<!-- Logiciels  : Inkscape (gratuit), Illustrator, Affinity Publisher -->
+<svg xmlns="http://www.w3.org/2000/svg"
+     width="1141.41px" height="816.37px"
+     viewBox="0 0 1141.41 816.37">
+<defs>
+  <linearGradient id="gFront" x1="0" y1="0" x2="0" y2="1">
+    <stop offset="0%"   stop-color="#8B5E1A"/>
+    <stop offset="45%"  stop-color="#C9871F"/>
+    <stop offset="100%" stop-color="#3D2200"/>
+  </linearGradient>
+  <linearGradient id="gBack" x1="0" y1="0" x2="0" y2="1">
+    <stop offset="0%"   stop-color="#2C1800"/>
+    <stop offset="100%" stop-color="#4A2E00"/>
+  </linearGradient>
+  <linearGradient id="gSpine" x1="0" y1="0" x2="1" y2="0">
+    <stop offset="0%"   stop-color="#2C1800"/>
+    <stop offset="100%" stop-color="#3D2200"/>
+  </linearGradient>
+  <linearGradient id="gTitle" x1="0" y1="0" x2="0" y2="1">
+    <stop offset="0%"   stop-color="#F0D060"/>
+    <stop offset="100%" stop-color="#D4AF37"/>
+  </linearGradient>
+  <filter id="shadow" x="-10%" y="-10%" width="120%" height="120%">
+    <feDropShadow dx="0" dy="2" stdDeviation="3" flood-color="#000" flood-opacity="0.6"/>
+  </filter>
+  <filter id="textglow">
+    <feDropShadow dx="0" dy="1" stdDeviation="2" flood-color="#000" flood-opacity="0.8"/>
+  </filter>
+</defs>
+
+<!-- ══ 4e DE COUVERTURE ══ -->
+<rect x="11.34" y="11.34" width="529.13" height="793.7" fill="url(#gBack)"/>
+<rect x="41.58" y="56.69" width="468.66" height="1.51" fill="#D4AF37" opacity="0.7"/>
+<text x="275.9" y="94.49000000000001" text-anchor="middle" font-family="Georgia,serif" font-size="22.68" font-weight="bold" fill="url(#gTitle)" filter="url(#textglow)">AU FINAL, C'EST DIEU QUI ÉCRIT L'HISTOIRE</text>
+<rect x="41.58" y="105.83" width="468.66" height="1.13" fill="#D4AF37" opacity="0.4"/>
+<text x="49.14" y="139.84" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">Sara Mensah a grandi dans les rues de Yopougon avec un carnet</text>
+<text x="49.14" y="159.49" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">bordeaux et un meilleur ami nommé Élias — celui qui dessinait</text>
+<text x="49.14" y="179.14000000000001" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">ses nattes avant même qu'elle sache qu'elle valait la peine</text>
+<text x="49.14" y="198.79000000000002" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">d'être dessinée.</text>
+<text x="49.14" y="231.67000000000002" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">À vingt-deux ans, elle rencontre Marcus Kouassi dans la lumière</text>
+<text x="49.14" y="251.32000000000002" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">de l'Hôtel Ivoire. Il est beau, présent, et il sait exactement</text>
+<text x="49.14" y="270.97" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">quoi dire. Elle ne voit pas encore ce que sa première gifle coûtera.</text>
+<text x="49.14" y="303.85" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">Six ans plus tard, Sara est assise dans une cuisine de Cocody</text>
+<text x="49.14" y="323.5" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">avec un œil tuméfié, une lettre d'adieu pour ses deux filles,</text>
+<text x="49.14" y="343.15" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">et plus rien à quoi se raccrocher.</text>
+<text x="49.14" y="376.03" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">Sauf peut-être une voisine qui frappe pour du sel.</text>
+<text x="49.14" y="395.67999999999995" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">Sauf peut-être une main invisible dans le noir.</text>
+<text x="49.14" y="415.3299999999999" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">Sauf peut-être Dieu, qui depuis le début écrit une histoire</text>
+<text x="49.14" y="434.9799999999999" font-family="Georgia,serif" font-size="12.85" fill="#F5E6C8" font-style="italic">que Sara n'avait pas su lire.</text>
+<rect x="41.58" y="469.7499999999999" width="468.66" height="1.13" fill="#D4AF37" opacity="0.5"/>
+<circle cx="79.37" cy="522.6699999999998" r="30.24" fill="#4A2E00" stroke="#D4AF37" stroke-width="1.5"/>
+<text x="79.37" y="528.3399999999998" text-anchor="middle" font-family="Georgia,serif" font-size="10.58" fill="#D4AF37" opacity="0.7">Photo</text>
+<text x="132.28" y="503.76999999999987" font-family="Georgia,serif" font-size="15.12" font-weight="bold" fill="#D4AF37">Djillah Kodjo Stanislas</text>
+<text x="132.28" y="522.6699999999998" font-family="Georgia,serif" font-size="11.34" fill="#F5E6C8" opacity="0.85">est né au Togo, a grandi en Belgique et vit aujourd'hui en</text>
+<text x="132.28" y="539.6799999999998" font-family="Georgia,serif" font-size="11.34" fill="#F5E6C8" opacity="0.85">Côte d'Ivoire. Il a grandi en regardant des femmes porter le</text>
+<text x="132.28" y="556.6899999999998" font-family="Georgia,serif" font-size="11.34" fill="#F5E6C8" opacity="0.85">monde en silence. Sara Mensah est née de toutes celles qu'il</text>
+<text x="132.28" y="573.6999999999998" font-family="Georgia,serif" font-size="11.34" fill="#F5E6C8" opacity="0.85">a connues, aimées de loin.</text>
+<text x="132.28" y="600.1599999999999" font-family="Georgia,serif" font-size="11.34" fill="#F5E6C8" opacity="0.85">Ce roman est dédié à toutes les femmes qui ont enduré sans</text>
+<text x="132.28" y="617.1699999999998" font-family="Georgia,serif" font-size="11.34" fill="#F5E6C8" opacity="0.85">savoir comment tenir — et qui découvrent, en regardant</text>
+<text x="132.28" y="634.1799999999998" font-family="Georgia,serif" font-size="11.34" fill="#F5E6C8" opacity="0.85">derrière elles, qu'une main invisible les tenait depuis</text>
+<text x="132.28" y="651.1899999999998" font-family="Georgia,serif" font-size="11.34" fill="#F5E6C8" opacity="0.85">le début. Parce que Dieu a toujours veillé.</text>
+<text x="275.9" y="684.09" text-anchor="middle" font-family="Georgia,serif" font-size="14.36" font-style="italic" fill="#D4AF37" opacity="0.9">Ce livre n'est pas une histoire de victime.</text>
+<text x="275.9" y="706.77" text-anchor="middle" font-family="Georgia,serif" font-size="14.36" font-style="italic" fill="#D4AF37" opacity="0.9">C'est une histoire de femme debout.</text>
+<rect x="419.53" y="729.45" width="105.83" height="60.47" fill="#FFFFFF" rx="2"/>
+<rect x="427.09" y="737.01" width="1.51" height="45.35" fill="#000"/>
+<rect x="430.48999999999995" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="433.89" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="437.28999999999996" y="737.01" width="1.51" height="45.35" fill="#000"/>
+<rect x="440.69" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="444.09" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="447.48999999999995" y="737.01" width="1.51" height="45.35" fill="#000"/>
+<rect x="450.89" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="454.28999999999996" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="457.69" y="737.01" width="1.51" height="45.35" fill="#000"/>
+<rect x="461.09" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="464.48999999999995" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="467.89" y="737.01" width="1.51" height="45.35" fill="#000"/>
+<rect x="471.28999999999996" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="474.69" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="478.09" y="737.01" width="1.51" height="45.35" fill="#000"/>
+<rect x="481.48999999999995" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="484.89" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="488.28999999999996" y="737.01" width="1.51" height="45.35" fill="#000"/>
+<rect x="491.68999999999994" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="495.09" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="498.48999999999995" y="737.01" width="1.51" height="45.35" fill="#000"/>
+<rect x="501.89" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="505.28999999999996" y="737.01" width="1.51" height="37.8" fill="#000"/>
+<rect x="508.68999999999994" y="737.01" width="1.51" height="45.35" fill="#000"/>
+<text x="472.43999999999994" y="786.1400000000001" text-anchor="middle" font-family="Arial,sans-serif" font-size="9.45" fill="#000">978-X-XXXXXX-XX-X</text>
+<rect x="41.58" y="786.14" width="468.66" height="1.51" fill="#D4AF37" opacity="0.6"/>
+<!-- ══ TRANCHE ══ -->
+<rect x="540.47" y="11.34" width="60.47" height="793.7" fill="url(#gSpine)"/>
+<rect x="544.25" y="49.14" width="1.89" height="718.11" fill="#D4AF37" opacity="0.5"/>
+<rect x="595.2700000000001" y="49.14" width="1.89" height="718.11" fill="#D4AF37" opacity="0.5"/>
+<text x="570.705" y="408.19" text-anchor="middle" font-family="Georgia,serif" font-size="17.01" font-weight="bold" fill="url(#gTitle)" transform="rotate(-90,570.705,408.19)">AU FINAL, C'EST DIEU QUI ÉCRIT L'HISTOIRE</text>
+<text x="570.705" y="748.3500000000001" text-anchor="middle" font-family="Georgia,serif" font-size="12.09" fill="#F5E6C8" opacity="0.85" transform="rotate(-90,570.705,748.3500000000001)">DJILLAH KODJO STANISLAS</text>
+<!-- ══ 1re DE COUVERTURE ══ -->
+<rect x="600.94" y="11.34" width="529.13" height="793.7" fill="url(#gFront)"/>
+<rect x="619.84" y="117.17" width="491.34" height="434.64" fill="#4A2E00" rx="4" opacity="0.6" stroke="#D4AF37" stroke-width="1" stroke-dasharray="6,3"/>
+<text x="865.51" y="311.81" text-anchor="middle" font-family="Arial,sans-serif" font-size="17.01" fill="#D4AF37" opacity="0.7">[ INSÉREZ VOTRE IMAGE ICI ]</text>
+<text x="865.51" y="345.83" text-anchor="middle" font-family="Arial,sans-serif" font-size="11.34" fill="#F5E6C8" opacity="0.5">Femme africaine + 2 filles au premier plan</text>
+<text x="865.51" y="368.51" text-anchor="middle" font-family="Arial,sans-serif" font-size="11.34" fill="#F5E6C8" opacity="0.5">Élias arrière-plan droit · Marcus arrière-plan gauche</text>
+<rect x="631.1800000000001" y="52.91" width="468.66" height="1.89" fill="#D4AF37"/>
+<rect x="631.1800000000001" y="60.47" width="468.66" height="0.76" fill="#D4AF37" opacity="0.4"/>
+<text x="865.5" y="102.05" text-anchor="middle" font-family="Georgia,serif" font-size="43.46" font-weight="bold" fill="url(#gTitle)" filter="url(#textglow)">AU FINAL,</text>
+<text x="865.5" y="153.07" text-anchor="middle" font-family="Georgia,serif" font-size="43.46" font-weight="bold" fill="url(#gTitle)" filter="url(#textglow)">C'EST DIEU</text>
+<text x="865.5" y="204.09" text-anchor="middle" font-family="Georgia,serif" font-size="43.46" font-weight="bold" fill="url(#gTitle)" filter="url(#textglow)">QUI ÉCRIT</text>
+<text x="865.5" y="255.11" text-anchor="middle" font-family="Georgia,serif" font-size="43.46" font-weight="bold" fill="url(#gTitle)" filter="url(#textglow)">L'HISTOIRE</text>
+<rect x="631.1800000000001" y="111.5" width="468.66" height="1.13" fill="#D4AF37" opacity="0.5"/>
+<rect x="631.1800000000001" y="706.77" width="468.66" height="1.51" fill="#D4AF37"/>
+<rect x="631.1800000000001" y="714.33" width="468.66" height="0.76" fill="#D4AF37" opacity="0.4"/>
+<text x="865.5" y="740.79" text-anchor="middle" font-family="Georgia,serif" font-size="14.36" font-style="italic" fill="#F5E6C8" opacity="0.9">Une histoire d'amour, de brisure et de renaissance</text>
+<text x="865.5" y="774.8" text-anchor="middle" font-family="Georgia,serif" font-size="20.79" font-weight="bold" fill="#FFFFFF" letter-spacing="2" filter="url(#textglow)">DJILLAH KODJO STANISLAS</text>
+<!-- ══ REPÈRES DE COUPE ══ -->
+<line x1="11.34" y1="0" x2="11.34" y2="816.37" stroke="#FF0000" stroke-width="0.5" stroke-dasharray="4,3" opacity="0.4" fill="none"/>
+<line x1="540.47" y1="0" x2="540.47" y2="816.37" stroke="#FF0000" stroke-width="0.5" stroke-dasharray="4,3" opacity="0.4" fill="none"/>
+<line x1="600.94" y1="0" x2="600.94" y2="816.37" stroke="#FF0000" stroke-width="0.5" stroke-dasharray="4,3" opacity="0.4" fill="none"/>
+<line x1="1130.0700000000002" y1="0" x2="1130.0700000000002" y2="816.37" stroke="#FF0000" stroke-width="0.5" stroke-dasharray="4,3" opacity="0.4" fill="none"/>
+<line x1="0" y1="11.34" x2="1141.41" y2="11.34" stroke="#FF0000" stroke-width="0.5" stroke-dasharray="4,3" opacity="0.4" fill="none"/>
+<line x1="0" y1="805.0400000000001" x2="1141.41" y2="805.0400000000001" stroke="#FF0000" stroke-width="0.5" stroke-dasharray="4,3" opacity="0.4" fill="none"/>
+<text x="275.905" y="5.67" text-anchor="middle" font-family="Arial" font-size="9" fill="#FF0000" opacity="0.6">◄ 4e DE COUVERTURE ►</text>
+<text x="570.705" y="5.67" text-anchor="middle" font-family="Arial" font-size="9" fill="#FF0000" opacity="0.6">◄ TRANCHE ►</text>
+<text x="865.5050000000001" y="5.67" text-anchor="middle" font-family="Arial" font-size="9" fill="#FF0000" opacity="0.6">◄ 1re DE COUVERTURE ►</text>
+</svg>
